@@ -1,0 +1,34 @@
+name: An Action A Day
+
+on:
+  schedule:
+    - cron: "0 0 * * *"
+  workflow_dispatch:
+
+jobs:
+  update:
+    runs-on: ubuntu-latest
+
+    steps:
+    - name: Setup repository
+      uses: actions/checkout@v3
+
+    - name: Update files
+      run: |
+        pip install requests pandas tabulate
+        python main.py
+        export TZ=UTC-8
+        echo "TIME=$(date +'%Y-%m-%d %H:%M:%S')" >> "$GITHUB_ENV"
+
+    - name: Commit files
+      uses: EndBug/add-and-commit@v9
+      with:
+        message: "Update Daily Wallpaper at ${{ env.TIME }}"
+
+    - name: Delete workflow histories
+      uses: Mattraks/delete-workflow-runs@main
+      with:
+        token: ${{ github.token }}
+        repository: ${{ github.repository }}
+        retain_days: 7
+        keep_minimum_runs: 0
