@@ -1,6 +1,6 @@
-# 20230606 - 如果这些墙会说话······
+# 20230603 - 热带天堂的黑沙滩
 
-![](https://www.bing.com/th?id=OHR.ChacoCulture_ZH-CN2098865361_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MauiBeach_ZH-CN1435658101_UHD.jpg)
 
 # History
 
