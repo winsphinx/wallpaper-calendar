@@ -1,6 +1,6 @@
-# 20230603 - 热带天堂的黑沙滩
+# 20230608 - 与太阳一同升起
 
-![](https://www.bing.com/th?id=OHR.MauiBeach_ZH-CN1435658101_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BalloonsTurkey_ZH-CN2791109350_UHD.jpg)
 
 # History
 
