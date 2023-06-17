@@ -1,6 +1,6 @@
-# 20230615 - 鹰嘴海龟
+# 20230616 - 桨叶动力
 
-![](https://www.bing.com/th?id=OHR.HawksbillTurtle_ZH-CN0562063994_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_UHD.jpg)
 
 # History
 
