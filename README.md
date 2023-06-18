@@ -1,8 +1,10 @@
-# 20230616 - 桨叶动力
+# 每日壁纸
 
-![](https://www.bing.com/th?id=OHR.SurfSanDiego_ZH-CN1485510748_UHD.jpg)
+## 20230617 - 值班爸爸
 
-# History
+![](https://www.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_UHD.jpg)
+
+## 归档
 
 | [202306](/202306/README.MD)
 |
