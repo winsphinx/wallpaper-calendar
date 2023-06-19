@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230617 - 值班爸爸
+## 20230618 - 这只小可爱在哪里?
 
-![](https://www.bing.com/th?id=OHR.TernFather_ZH-CN1860589914_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_UHD.jpg)
 
 ## 归档
 
