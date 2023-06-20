@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230618 - 这只小可爱在哪里?
+## 20230619 - 这只顶级掠食者是什么?
 
-![](https://www.bing.com/th?id=OHR.Fawn_ZH-CN2172152960_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_UHD.jpg)
 
 ## 归档
 
