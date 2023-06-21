@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230619 - 这只顶级掠食者是什么?
+## 20230620 - 夏日仙境
 
-![](https://www.bing.com/th?id=OHR.EagleTree_ZH-CN7775102951_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_UHD.jpg)
 
 ## 归档
 
