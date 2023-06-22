@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230620 - 夏日仙境
+## 20230621 - 仲夏端午
 
-![](https://www.bing.com/th?id=OHR.SummerSolstice2023_ZH-CN5038619036_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DragonBoatFestival2023_ZH-CN5255671687_UHD.jpg)
 
 ## 归档
 
