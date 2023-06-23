@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230621 - 仲夏端午
+## 20230622 - 蝴蝶翩跹
 
-![](https://www.bing.com/th?id=OHR.DragonBoatFestival2023_ZH-CN5255671687_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_UHD.jpg)
 
 ## 归档
 
