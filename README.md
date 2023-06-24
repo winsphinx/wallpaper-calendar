@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230622 - 蝴蝶翩跹
+## 20230623 - 海湾之美
 
-![](https://www.bing.com/th?id=OHR.PollinatorMonarch_ZH-CN5556988827_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NhaTrang_ZH-CN5834700560_UHD.jpg)
 
 ## 归档
 
