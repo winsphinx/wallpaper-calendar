@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230623 - 海湾之美
+## 20230624 - 一座宝库
 
-![](https://www.bing.com/th?id=OHR.NhaTrang_ZH-CN5834700560_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PetraTreasury_ZH-CN6007151900_UHD.jpg)
 
 ## 归档
 
