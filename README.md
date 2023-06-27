@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230625 - 奢华的迷宫
+## 20230626 - 红石的土地
 
-![](https://www.bing.com/th?id=OHR.VillandryGarden_ZH-CN6140359139_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_UHD.jpg)
 
 ## 归档
 
