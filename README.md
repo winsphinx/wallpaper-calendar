@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230626 - 红石的土地
+## 20230627 - 天堂之景！
 
-![](https://www.bing.com/th?id=OHR.SedonaSunset_ZH-CN6289462383_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_UHD.jpg)
 
 ## 归档
 
