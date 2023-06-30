@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230627 - 天堂之景！
+## 20230628 - 赞美热带
 
-![](https://www.bing.com/th?id=OHR.ItalyCinqueTerre_ZH-CN6495965228_UHD.jpg)
+![](https://www.bing.com//th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg)
 
 ## 归档
 
