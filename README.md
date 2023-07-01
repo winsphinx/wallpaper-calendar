@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230628 - 赞美热带
+## 20230630 - 超凡脱俗的风景
 
-![](https://www.bing.com//th?id=OHR.BanyakIslands_ZH-CN6620304821_UHD.jpg)
+![](https://www.bing.com//th?id=OHR.RomeView_ZH-CN5882212305_UHD.jpg)
 
 ## 归档
 
