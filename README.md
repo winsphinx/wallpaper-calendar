@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230701 - 一年已过半
+## 20230702 - 天气热得让人想嗷嗷叫！
 
-![](https://www.bing.com//th?id=OHR.HalfwayBoats_ZH-CN3563044251_UHD.jpg)
+![](https://www.bing.com//th?id=OHR.CoyoteBanff_ZH-CN4183627255_UHD.jpg)
 
 ## 归档
 
