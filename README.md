@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230703 - 体验孤独与奇迹
+## 20230705 - 接吻的企鹅
 
-![](https://www.bing.com//th?id=OHR.GrasslandsNationalParkSaskachewan_ZH-CN6530285883_UHD.jpg)
+![](https://www.bing.com//th?id=OHR.KissingPenguins_ZH-CN5449471262_UHD.jpg)
 
 ## 归档
 
