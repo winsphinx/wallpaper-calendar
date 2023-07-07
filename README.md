@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230705 - 接吻的企鹅
+## 20230706 - 巧克力爱好者最爱的水果
 
-![](https://www.bing.com//th?id=OHR.KissingPenguins_ZH-CN5449471262_UHD.jpg)
+![](https://www.bing.com//th?id=OHR.CocoaPods_ZH-CN6192387360_UHD.jpg)
 
 ## 归档
 
