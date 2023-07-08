@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230706 - 巧克力爱好者最爱的水果
+## 20230707 - 树林中的避难所
 
-![](https://www.bing.com//th?id=OHR.CocoaPods_ZH-CN6192387360_UHD.jpg)
+![](https://www.bing.com//th?id=OHR.CooperChapel_ZH-CN1150924688_UHD.jpg)
 
 ## 归档
 
