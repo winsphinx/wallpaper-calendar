@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230707 - 树林中的避难所
+## 20230708 - 河湾
 
-![](https://www.bing.com//th?id=OHR.CooperChapel_ZH-CN1150924688_UHD.jpg)
+![](https://www.bing.com//th?id=OHR.MoselleRiver_ZH-CN1283415242_UHD.jpg)
 
 ## 归档
 
