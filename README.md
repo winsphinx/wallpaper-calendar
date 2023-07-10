@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230708 - 河湾
+## 20230709 - 飘着香气的紫色海洋
 
-![](https://www.bing.com//th?id=OHR.MoselleRiver_ZH-CN1283415242_UHD.jpg)
+![](https://www.bing.com//th?id=OHR.SomersetLavender_ZH-CN5823464763_UHD.jpg)
 
 ## 归档
 
