@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230709 - 飘着香气的紫色海洋
+## 20230710 - 万家灯火
 
-![](https://www.bing.com//th?id=OHR.SomersetLavender_ZH-CN5823464763_UHD.jpg)
+![](https://www.bing.com//th?id=OHR.WorldPopDay_ZH-CN7074706912_UHD.jpg)
 
 ## 归档
 
