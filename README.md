@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230710 - 万家灯火
+## 20230711 - 世界上最独特的海滩？
 
-![](https://www.bing.com//th?id=OHR.WorldPopDay_ZH-CN7074706912_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NakupendaBeach_ZH-CN7913805608_UHD.jpg)
 
 ## 归档
 
