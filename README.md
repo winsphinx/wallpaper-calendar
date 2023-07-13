@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230711 - 世界上最独特的海滩？
+## 20230712 - 行走在彩虹岩石上
 
-![](https://www.bing.com/th?id=OHR.NakupendaBeach_ZH-CN7913805608_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_UHD.jpg)
 
 ## 归档
 
