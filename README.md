@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230712 - 行走在彩虹岩石上
+## 20230713 - 一群鲨鱼正在狩猎
 
-![](https://www.bing.com/th?id=OHR.ZhangyeGeopark_ZH-CN1045536243_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BlacktipSharks_ZH-CN6532659465_UHD.jpg)
 
 ## 归档
 
