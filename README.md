@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230714 - 明信片般完美的风景
+## 20230715 - 溪水潺潺
 
-![](https://www.bing.com/th?id=OHR.CastelmazzanoSunrise_ZH-CN6733875019_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_UHD.jpg)
 
 ## 归档
 
