@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230715 - 溪水潺潺
+## 20230716 - 古老的中世纪奇迹
 
-![](https://www.bing.com/th?id=OHR.BearHoleBrook_ZH-CN6855885557_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CavanCastle_ZH-CN7109317900_UHD.jpg)
 
 ## 归档
 
