@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230717 - 这只鸟长着尖尖的嘴
+## 20230718 - 这片湖泊可不是海市蜃楼
 
-![](https://www.bing.com/th?id=OHR.BucerosBicornis_ZH-CN7795050230_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_UHD.jpg)
 
 ## 归档
 
