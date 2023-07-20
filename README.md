@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230718 - 这片湖泊可不是海市蜃楼
+## 20230719 - 为我们的近邻月球而庆祝
 
-![](https://www.bing.com/th?id=OHR.CrescentLake_ZH-CN8294493832_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_UHD.jpg)
 
 ## 归档
 
