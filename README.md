@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230719 - 为我们的近邻月球而庆祝
+## 20230720 - 将散落的岛屿连接在一起
 
-![](https://www.bing.com/th?id=OHR.MoonDayArtemis_ZH-CN8743374853_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_UHD.jpg)
 
 ## 归档
 
