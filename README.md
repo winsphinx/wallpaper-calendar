@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230720 - 将散落的岛屿连接在一起
+## 20230721 - 想出去玩吗？
 
-![](https://www.bing.com/th?id=OHR.BridgeNorway_ZH-CN9063814637_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_UHD.jpg)
 
 ## 归档
 
