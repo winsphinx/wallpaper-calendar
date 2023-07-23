@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230721 - 想出去玩吗？
+## 20230722 - 你好，你在找“茶”吗?
 
-![](https://www.bing.com/th?id=OHR.HammockDay_ZH-CN9368760971_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_UHD.jpg)
 
 ## 归档
 
