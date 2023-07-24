@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230722 - 你好，你在找“茶”吗?
+## 20230723 - 堂/表兄弟姐妹日
 
-![](https://www.bing.com/th?id=OHR.TeaEstate_ZH-CN9645412630_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ZebraCousins_ZH-CN8159888859_UHD.jpg)
 
 ## 归档
 
