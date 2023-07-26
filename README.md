@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230724 - 粉红色，很好看
+## 20230725 - 和这些耐盐植物问好！
 
-![](https://www.bing.com/th?id=OHR.LasLagunas_ZH-CN9917702340_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_UHD.jpg)
 
 ## 归档
 
