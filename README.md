@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230725 - 和这些耐盐植物问好！
+## 20230726 - 凯旋的姿态
 
-![](https://www.bing.com/th?id=OHR.MangrovePark_ZH-CN0208518370_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_UHD.jpg)
 
 ## 归档
 
