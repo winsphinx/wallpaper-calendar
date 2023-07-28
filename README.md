@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230726 - 凯旋的姿态
+## 20230727 - 美丽的蓝色岛屿
 
-![](https://www.bing.com/th?id=OHR.ParisLouvre_ZH-CN0341884841_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_UHD.jpg)
 
 ## 归档
 
