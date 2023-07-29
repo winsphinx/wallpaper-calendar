@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230727 - 美丽的蓝色岛屿
+## 20230728 - 国际老虎日
 
-![](https://www.bing.com/th?id=OHR.SanBlasIslands_ZH-CN6320572106_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_UHD.jpg)
 
 ## 归档
 
