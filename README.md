@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230728 - 国际老虎日
+## 20230729 - 宛若仙境的帕卢斯田园
 
-![](https://www.bing.com/th?id=OHR.TigerIndia_ZH-CN6657629375_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_UHD.jpg)
 
 ## 归档
 
