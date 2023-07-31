@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230729 - 宛若仙境的帕卢斯田园
+## 20230730 - 有人在家吗?
 
-![](https://www.bing.com/th?id=OHR.PalouseHills_ZH-CN6864015897_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_UHD.jpg)
 
 ## 归档
 
