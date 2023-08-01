@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230730 - 有人在家吗?
+## 20230731 - 德纳里山的力量无可否认
 
-![](https://www.bing.com/th?id=OHR.RockHouse_ZH-CN7318310409_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DenaliClimber_ZH-CN7548168932_UHD.jpg)
 
 ## 归档
 
