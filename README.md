@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230801 - 大自然色调的调色板
+## 20230802 - 绿松石般的泉水
 
-![](https://www.bing.com/th?id=OHR.CapitolButte_ZH-CN7707972988_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ZelenciSprings_ZH-CN8022746409_UHD.jpg)
 
 ## 归档
 
