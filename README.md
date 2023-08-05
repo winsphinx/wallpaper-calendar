@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230803 - 一扇通向过去的窗
+## 20230804 - 海鹦繁殖季
 
-![](https://www.bing.com/th?id=OHR.GothicRuins_ZH-CN8317467997_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_UHD.jpg)
 
 ## 归档
 
