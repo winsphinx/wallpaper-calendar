@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230804 - 海鹦繁殖季
+## 20230805 - 一面反映大自然之美的镜子
 
-![](https://www.bing.com/th?id=OHR.AtlanticPuffin_ZH-CN8523220989_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_UHD.jpg)
 
 ## 归档
 
