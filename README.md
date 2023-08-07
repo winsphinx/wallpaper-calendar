@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230805 - 一面反映大自然之美的镜子
+## 20230806 - 地上一点，天上万千
 
-![](https://www.bing.com/th?id=OHR.NaganoPond_ZH-CN8794832798_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_UHD.jpg)
 
 ## 归档
 
