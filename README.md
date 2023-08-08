@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230806 - 地上一点，天上万千
+## 20230807 - 恍若童话世界，胜似人间仙境
 
-![](https://www.bing.com/th?id=OHR.BodieNC_ZH-CN9027999004_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LiQiu2023_ZH-CN9197909278_UHD.jpg)
 
 ## 归档
 
