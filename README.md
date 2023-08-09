@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230807 - 恍若童话世界，胜似人间仙境
+## 20230808 - 壮观的自然古迹
 
-![](https://www.bing.com/th?id=OHR.LiQiu2023_ZH-CN9197909278_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PandiZucchero_ZH-CN9833521922_UHD.jpg)
 
 ## 归档
 
