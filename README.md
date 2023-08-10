@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230808 - 壮观的自然古迹
+## 20230809 - 丛林之王？还真不是
 
-![](https://www.bing.com/th?id=OHR.PandiZucchero_ZH-CN9833521922_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_UHD.jpg)
 
 ## 归档
 
