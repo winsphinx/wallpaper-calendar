@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230809 - 丛林之王？还真不是
+## 20230810 - 独一无二的一朵“水花”
 
-![](https://www.bing.com/th?id=OHR.WorldLionDay_ZH-CN0525835107_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_UHD.jpg)
 
 ## 归档
 
