@@ -1,8 +1,8 @@
 # 每日壁纸
 
-## 20230810 - 独一无二的一朵“水花”
+## 20230811 - 保护温柔的巨人
 
-![](https://www.bing.com/th?id=OHR.JupiterArtland_ZH-CN7955790073_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ThreeElephants_ZH-CN8708711085_UHD.jpg)
 
 ## 归档
 
