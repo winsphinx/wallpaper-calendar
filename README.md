@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230812 - 抬头看，它来了
+## 20230813 - 躲猫猫，我看见你了!
 
-### 英仙座流星雨，白杨木峡谷州立公园，俄勒冈州，美国
+###### 叶片上的小壁虎
 
-![](https://www.bing.com/th?id=OHR.PerseidsOregon_ZH-CN9427980491_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_UHD.jpg)
 
 ## 归档
 
