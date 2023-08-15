@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230813 - 躲猫猫，我看见你了!
+## 20230814 - 发光的矩形广场
 
-###### 叶片上的小壁虎
+###### 四月九日广场，陶尔米纳，西西里岛，意大利
 
-![](https://www.bing.com/th?id=OHR.GeckoLeaf_ZH-CN9908456174_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_UHD.jpg)
 
 ## 归档
 
