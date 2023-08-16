@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230814 - 发光的矩形广场
+## 20230815 - 一把通向岛屿的钥匙
 
-###### 四月九日广场，陶尔米纳，西西里岛，意大利
+###### 基韦斯特的七英里大桥，佛罗里达州，美国
 
-![](https://www.bing.com/th?id=OHR.TaorminaSquare_ZH-CN0273325652_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_UHD.jpg)
 
 ## 归档
 
