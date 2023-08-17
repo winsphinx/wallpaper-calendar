@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230815 - 一把通向岛屿的钥匙
+## 20230816 - 听它咆哮！
 
-###### 基韦斯特的七英里大桥，佛罗里达州，美国
+###### 罕肯瀑布,威尔斯格雷省立公园, 加拿大不列颠哥伦比亚省
 
-![](https://www.bing.com/th?id=OHR.KeyWestBridge_ZH-CN2540450067_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HelmckenWaterfall_ZH-CN9694510761_UHD.jpg)
 
 ## 归档
 
