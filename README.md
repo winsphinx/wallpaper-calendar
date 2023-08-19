@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230817 - 挑战地心引力的世界奇观
+## 20230818 - 我准备好拍特写了，松鼠先生
 
-###### 哈利路亚山，张家界国家森林公园，中国
+###### 看着相机镜头的松鼠
 
-![](https://www.bing.com/th?id=OHR.AvatarMountain_ZH-CN3268610045_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_UHD.jpg)
 
 ## 归档
 
