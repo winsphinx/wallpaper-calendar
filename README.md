@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230818 - 我准备好拍特写了，松鼠先生
+## 20230819 - 海上哨兵
 
-###### 看着相机镜头的松鼠
+###### 起点灯塔，德文郡，英国
 
-![](https://www.bing.com/th?id=OHR.CameraSquirrel_ZH-CN3580119980_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_UHD.jpg)
 
 ## 归档
 
