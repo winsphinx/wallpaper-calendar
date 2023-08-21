@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230819 - 海上哨兵
+## 20230820 - 自内而外的光彩
 
-###### 起点灯塔，德文郡，英国
+###### 翡翠湖，加拿大育空地区
 
-![](https://www.bing.com/th?id=OHR.StartPointLight_ZH-CN4021540566_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_UHD.jpg)
 
 ## 归档
 
