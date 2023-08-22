@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230820 - 自内而外的光彩
+## 20230821 - 为罗马建筑“起立欢呼”
 
-###### 翡翠湖，加拿大育空地区
+###### 埃尔杰姆露天剧场，突尼斯
 
-![](https://www.bing.com/th?id=OHR.EmeraldLakeYukon_ZH-CN4281156537_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_UHD.jpg)
 
 ## 归档
 
