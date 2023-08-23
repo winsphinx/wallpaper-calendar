@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230821 - 为罗马建筑“起立欢呼”
+## 20230822 - 溅起一潭水花
 
-###### 埃尔杰姆露天剧场，突尼斯
+###### 斯科加瀑布，冰岛
 
-![](https://www.bing.com/th?id=OHR.TunisiaAmphitheatre_ZH-CN4431856872_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SkogafossWaterfall_ZH-CN4763253095_UHD.jpg)
 
 ## 归档
 
