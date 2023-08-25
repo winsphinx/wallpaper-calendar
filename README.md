@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230823 - 自然“鳍”观
+## 20230824 - 这是你的土地
 
-###### 鲨鱼鳍湾，达文波特，加利福尼亚州，美国
+###### 黄石下瀑布，黄石国家公园，怀俄明州，美国
 
-![](https://www.bing.com/th?id=OHR.SharkFinCove_ZH-CN4952934195_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YellowstoneFalls_ZH-CN8050562150_UHD.jpg)
 
 ## 归档
 
