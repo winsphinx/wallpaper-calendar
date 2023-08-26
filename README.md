@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230824 - 这是你的土地
+## 20230825 - 博物馆之夜
 
-###### 黄石下瀑布，黄石国家公园，怀俄明州，美国
+###### 柏林大教堂和博物馆岛，柏林，德国
 
-![](https://www.bing.com/th?id=OHR.YellowstoneFalls_ZH-CN8050562150_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_UHD.jpg)
 
 ## 归档
 
