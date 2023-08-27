@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230825 - 博物馆之夜
+## 20230826 - 一个酷炫的凝灰岩火山口
 
-###### 柏林大教堂和博物馆岛，柏林，德国
+###### 城山日出峰，济州岛上的凝灰岩锥，韩国
 
-![](https://www.bing.com/th?id=OHR.MuseumIsland_ZH-CN8277258964_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_UHD.jpg)
 
 ## 归档
 
