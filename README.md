@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230826 - 一个酷炫的凝灰岩火山口
+## 20230827 - 小心龙出没！
 
-###### 城山日出峰，济州岛上的凝灰岩锥，韩国
+###### 洛夫里耶纳克堡，西港，杜布罗夫尼克，克罗地亚
 
-![](https://www.bing.com/th?id=OHR.JejuIsland_ZH-CN8434910851_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DubrovnikHarbor_ZH-CN8590217905_UHD.jpg)
 
 ## 归档
 
