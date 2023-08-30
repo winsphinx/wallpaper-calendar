@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230828 - 一头毛茸茸的牛
+## 20230829 - 潜水员的“大伙伴”
 
-###### 美洲野牛，大提顿国家公园，怀俄明州
+###### 鲸鲨，宁加洛珊瑚礁，西澳大利亚
 
-![](https://www.bing.com/th?id=OHR.TetonBison_ZH-CN9384306649_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NingalooShark_ZH-CN9014712175_UHD.jpg)
 
 ## 归档
 
