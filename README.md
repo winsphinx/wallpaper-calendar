@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230830 - 你今天过得怎么样？
+## 20230831 - 火鸡尾蘑菇
 
-###### 巨人柱，铁木森林国家纪念地，亚利桑那州，美国
+###### 火鸡尾蘑菇，布里瓦德，北卡罗来纳州，美国
 
-![](https://www.bing.com/th?id=OHR.IronwoodCactus_ZH-CN9290037977_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TurkeyTailMush_ZH-CN9683744281_UHD.jpg)
 
 ## 归档
 
