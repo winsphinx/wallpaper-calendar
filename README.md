@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230901 - 停下来喝点花蜜
+## 20230902 - 高耸入云
 
-###### 艾氏煌蜂鸟，圣克鲁斯，加利福尼亚州，美国
+###### 曼哈顿鸟瞰图，纽约市，美国
 
-![](https://www.bing.com/th?id=OHR.TinyHummer_ZH-CN9853929957_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_UHD.jpg)
 
 ## 归档
 
