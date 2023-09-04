@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230902 - 高耸入云
+## 20230903 - 城市中心的绿色天堂
 
-###### 曼哈顿鸟瞰图，纽约市，美国
+###### 布尔日的沼泽，法国
 
-![](https://www.bing.com/th?id=OHR.ManhattanAerial_ZH-CN0036686873_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_UHD.jpg)
 
 ## 归档
 
