@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230903 - 城市中心的绿色天堂
+## 20230904 - 数字合成的照片？不是吧！
 
-###### 布尔日的沼泽，法国
+###### 塞格拉山，塞尼亚岛，挪威
 
-![](https://www.bing.com/th?id=OHR.BourgesMarsh_ZH-CN0505354655_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_UHD.jpg)
 
 ## 归档
 
