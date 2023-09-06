@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230904 - 数字合成的照片？不是吧！
+## 20230905 - 准备好下锚了吗？
 
-###### 塞格拉山，塞尼亚岛，挪威
+###### 威尼斯旧港，克里特岛，希腊
 
-![](https://www.bing.com/th?id=OHR.MountSegla_ZH-CN0758615745_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_UHD.jpg)
 
 ## 归档
 
