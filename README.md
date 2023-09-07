@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230905 - 准备好下锚了吗？
+## 20230906 - 沙漠之舟
 
-###### 威尼斯旧港，克里特岛，希腊
+###### 沙漠中的骆驼，阿拉伯联合酋长国
 
-![](https://www.bing.com/th?id=OHR.CreteHarbor_ZH-CN0937533372_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_UHD.jpg)
 
 ## 归档
 
