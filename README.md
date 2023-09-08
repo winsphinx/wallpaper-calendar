@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230906 - 沙漠之舟
+## 20230907 - 简·奥斯汀的文学圈
 
-###### 沙漠中的骆驼，阿拉伯联合酋长国
+###### 巴斯圆形广场，萨默塞特 ，英国
 
-![](https://www.bing.com/th?id=OHR.CamelsAbove_ZH-CN1389810021_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_UHD.jpg)
 
 ## 归档
 
