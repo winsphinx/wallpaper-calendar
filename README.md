@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230907 - 简·奥斯汀的文学圈
+## 20230908 - 皇家寺庙的废墟
 
-###### 巴斯圆形广场，萨默塞特 ，英国
+###### 大城府历史公园的柴瓦塔那兰寺，泰国
 
-![](https://www.bing.com/th?id=OHR.BathCircus_ZH-CN5796600786_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AyutthayaTemple_ZH-CN5996587937_UHD.jpg)
 
 ## 归档
 
