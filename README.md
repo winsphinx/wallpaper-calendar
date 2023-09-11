@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230909 - 长者的智慧
+## 20230910 - 历史、自然和美酒交汇之地
 
-###### 斯瓦尔巴群岛海上的一对海象，挪威
+###### 波尔多葡萄园的日出，法国
 
-![](https://www.bing.com/th?id=OHR.WalrusSvalbard_ZH-CN6343458320_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_UHD.jpg)
 
 ## 归档
 
