@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230910 - 历史、自然和美酒交汇之地
+## 20230911 - 下一站，地平线。
 
-###### 波尔多葡萄园的日出，法国
+###### 北海日落，诺德多夫，德国
 
-![](https://www.bing.com/th?id=OHR.MarathonMedoc_ZH-CN6649798028_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_UHD.jpg)
 
 ## 归档
 
