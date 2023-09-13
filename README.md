@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230911 - 下一站，地平线。
+## 20230912 - 往事的低语
 
-###### 北海日落，诺德多夫，德国
+###### 赫马库塔山上的神庙，汉皮，卡纳塔克邦，印度
 
-![](https://www.bing.com/th?id=OHR.NorthSeaStairs_ZH-CN7044471948_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HemakutaHill_ZH-CN7438439036_UHD.jpg)
 
 ## 归档
 
