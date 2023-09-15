@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230913 - 只是两个朋友在玩闹而已
+## 20230914 - 山谷女王
 
-###### 普氏野马，哈斯台国家公园，蒙古国
+###### 格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰
 
-![](https://www.bing.com/th?id=OHR.MongoliaHorses_ZH-CN7660582867_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GlenariffForest_ZH-CN7874768337_UHD.jpg)
 
 ## 归档
 
