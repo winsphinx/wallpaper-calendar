@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230914 - 山谷女王
+## 20230915 - 系好你的安全带！
 
-###### 格莱纳里夫森林公园的日落，安特里姆郡，爱尔兰
+###### 施布吕根山口，格劳宾登州，瑞士
 
-![](https://www.bing.com/th?id=OHR.GlenariffForest_ZH-CN7874768337_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_UHD.jpg)
 
 ## 归档
 
