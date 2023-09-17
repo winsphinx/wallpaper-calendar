@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230915 - 系好你的安全带！
+## 20230916 - 杂色短尾鴗
 
-###### 施布吕根山口，格劳宾登州，瑞士
+###### 杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴
 
-![](https://www.bing.com/th?id=OHR.SplugenPass_ZH-CN8347591461_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_UHD.jpg)
 
 ## 归档
 
