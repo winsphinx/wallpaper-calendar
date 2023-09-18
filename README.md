@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230916 - 杂色短尾鴗
+## 20230917 - 黑夜里的“彩虹”
 
-###### 杂色短尾鴗，阿里杰罗德胡波尔德国家公园，古巴
+###### 西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙
 
-![](https://www.bing.com/th?id=OHR.CubanTody_ZH-CN8656368705_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_UHD.jpg)
 
 ## 归档
 
