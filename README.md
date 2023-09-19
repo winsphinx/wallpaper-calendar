@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230917 - 黑夜里的“彩虹”
+## 20230918 - 壁花的避风港
 
-###### 西南阿连特茹和维森廷海岸自然公园上空的银河，葡萄牙
+###### 哈德良长城，诺森伯兰郡国家公园，英国
 
-![](https://www.bing.com/th?id=OHR.MilkyWayPortugal_ZH-CN8878883229_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HadriansWallUK_ZH-CN9203571422_UHD.jpg)
 
 ## 归档
 
