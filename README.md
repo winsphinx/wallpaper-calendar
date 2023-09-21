@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230919 - 桥下和桥上的水流
+## 20230920 - 表彰和平卫士
 
-###### 罗马风格的渡槽，阿卡迪亚公园，波兰
+###### 诺贝尔和平中心内部，奥斯陆，挪威
 
-![](https://www.bing.com/th?id=OHR.ArkadiaPark_ZH-CN9501056317_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_UHD.jpg)
 
 ## 归档
 
