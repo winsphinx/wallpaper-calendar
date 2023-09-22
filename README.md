@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230920 - 表彰和平卫士
+## 20230921 - 马尔萨拉，西西里岛的奇迹之一
 
-###### 诺贝尔和平中心内部，奥斯陆，挪威
+###### 马尔萨拉盐田，意大利
 
-![](https://www.bing.com/th?id=OHR.NobelNorway_ZH-CN9824054026_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_UHD.jpg)
 
 ## 归档
 
