@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230921 - 马尔萨拉，西西里岛的奇迹之一
+## 20230922 - 沐浴在秋天的色彩中
 
-###### 马尔萨拉盐田，意大利
+###### 郊狼谷的棉白杨和红砂岩，格兰峡谷国家保护区，犹他州
 
-![](https://www.bing.com/th?id=OHR.MarsalaSalt_ZH-CN4943158328_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CottonwoodCanyon_ZH-CN5293620973_UHD.jpg)
 
 ## 归档
 
