@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230924 - 躺下来放松一下吧
+## 20230925 - 给滑板“冲浪”的波浪
 
-###### 巴特利特湾的海獭，冰川湾国家公园，阿拉斯加州
+###### 日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州
 
-![](https://www.bing.com/th?id=OHR.GlacierBayOtter_ZH-CN6065209551_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_UHD.jpg)
 
 ## 归档
 
