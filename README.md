@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230925 - 给滑板“冲浪”的波浪
+## 20230926 - 缓慢平稳地攀登悬崖
 
-###### 日落时的威尼斯海滩滑板公园，洛杉矶，加利福尼亚州
+###### 克虏伯路，卡普里岛，意大利
 
-![](https://www.bing.com/th?id=OHR.VeniceSkatePark_ZH-CN6295228801_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_UHD.jpg)
 
 ## 归档
 
