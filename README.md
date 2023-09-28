@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230926 - 缓慢平稳地攀登悬崖
+## 20230927 - 遵命！船长！
 
-###### 克虏伯路，卡普里岛，意大利
+###### 泰国商业港口附近的集装箱船
 
-![](https://www.bing.com/th?id=OHR.CapriKrupp_ZH-CN6893334288_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaritimeDay_ZH-CN7073219075_UHD.jpg)
 
 ## 归档
 
