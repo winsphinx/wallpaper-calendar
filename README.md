@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230927 - 遵命！船长！
+## 20230928 - 举杯邀明月
 
-###### 泰国商业港口附近的集装箱船
+###### 满月下的甲秀楼，中国贵州省贵阳市
 
-![](https://www.bing.com/th?id=OHR.MaritimeDay_ZH-CN7073219075_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GuiyangMoon_ZH-CN7497119092_UHD.jpg)
 
 ## 归档
 
