@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230928 - 举杯邀明月
+## 20230929 - 啊！仙纳度
 
-###### 满月下的甲秀楼，中国贵州省贵阳市
+###### 仙纳度国家公园的秋色，弗吉尼亚州
 
-![](https://www.bing.com/th?id=OHR.GuiyangMoon_ZH-CN7497119092_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ShenandoahFoliage_ZH-CN9885452713_UHD.jpg)
 
 ## 归档
 
