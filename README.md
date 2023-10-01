@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20230929 - 啊！仙纳度
+## 20230930 - 生日快乐
 
-###### 仙纳度国家公园的秋色，弗吉尼亚州
+###### 雄伟壮丽的中国长城
 
-![](https://www.bing.com/th?id=OHR.ShenandoahFoliage_ZH-CN9885452713_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NationalDay2023_ZH-CN8608297006_UHD.jpg)
 
 ## 归档
 
