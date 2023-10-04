@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231002 - 圣灵群岛之旅
+## 20231003 - 狼蛛星云
 
-###### 白天堂海滩，圣灵群岛，昆士兰州，澳大利亚
+###### 狼蛛星云中形成的年轻恒星，詹姆斯·韦布空间望远镜
 
-![](https://www.bing.com/th?id=OHR.WhitsundaySwirl_ZH-CN9085371328_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TarantulaNebula_ZH-CN9340300473_UHD.jpg)
 
 ## 归档
 
