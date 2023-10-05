@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231003 - 狼蛛星云
+## 20231004 - 这是怎么做到的！
 
-###### 狼蛛星云中形成的年轻恒星，詹姆斯·韦布空间望远镜
+###### 巴布亚企鹅，南极洲
 
-![](https://www.bing.com/th?id=OHR.TarantulaNebula_ZH-CN9340300473_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_UHD.jpg)
 
 ## 归档
 
