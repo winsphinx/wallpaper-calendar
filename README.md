@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231004 - 这是怎么做到的！
+## 20231005 - 大自然的威严
 
-###### 巴布亚企鹅，南极洲
+###### 杜鲁门斯堡的州立托格汉诺克瀑布公园，纽约州，美国
 
-![](https://www.bing.com/th?id=OHR.GentooJump_ZH-CN9625511393_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TaughannockFalls_ZH-CN4580750386_UHD.jpg)
 
 ## 归档
 
