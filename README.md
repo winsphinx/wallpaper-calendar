@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231005 - 大自然的威严
+## 20231006 - 吃三文鱼自助餐的时间到了
 
-###### 杜鲁门斯堡的州立托格汉诺克瀑布公园，纽约州，美国
+###### 灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国
 
-![](https://www.bing.com/th?id=OHR.TaughannockFalls_ZH-CN4580750386_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GrizzlyFalls_ZH-CN5152476563_UHD.jpg)
 
 ## 归档
 
