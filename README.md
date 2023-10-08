@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231006 - 吃三文鱼自助餐的时间到了
+## 20231007 - 贝壳庇护所
 
-###### 灰熊在卡特迈国家公园布鲁克斯瀑布捕捞鲑鱼，阿拉斯加州，美国
+###### 巨型蛤壳中的条纹蛸，苏拉威西海，印度尼西亚
 
-![](https://www.bing.com/th?id=OHR.GrizzlyFalls_ZH-CN5152476563_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OctoClam_ZH-CN5427646548_UHD.jpg)
 
 ## 归档
 
