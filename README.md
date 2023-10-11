@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231009 - 高高的落基山脉
+## 20231010 - 消失的回声
 
-###### 索普里斯山，科罗拉多州，美国
+###### 约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国
 
-![](https://www.bing.com/th?id=OHR.SoprisSunrise_ZH-CN5935701155_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JohnDayFossil_ZH-CN6265838332_UHD.jpg)
 
 ## 归档
 
