@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231010 - 消失的回声
+## 20231011 - 趁热打铁，勿失良机！
 
-###### 约翰迪化石床国家纪念地中的彩绘山，俄勒冈州，美国
+###### 帕卢斯地区的老谷仓和油菜田，爱达荷州，美国
 
-![](https://www.bing.com/th?id=OHR.JohnDayFossil_ZH-CN6265838332_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IdahoBarn_ZH-CN6472682534_UHD.jpg)
 
 ## 归档
 
