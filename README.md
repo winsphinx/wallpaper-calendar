@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231011 - 趁热打铁，勿失良机！
+## 20231012 - 住在悬崖边的日子
 
-###### 帕卢斯地区的老谷仓和油菜田，爱达荷州，美国
+###### 加尔加诺半岛上的维埃斯特，阿普利亚，意大利
 
-![](https://www.bing.com/th?id=OHR.IdahoBarn_ZH-CN6472682534_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_UHD.jpg)
 
 ## 归档
 
