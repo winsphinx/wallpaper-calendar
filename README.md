@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231012 - 住在悬崖边的日子
+## 20231013 - 它燃烧，燃烧，燃烧
 
-###### 加尔加诺半岛上的维埃斯特，阿普利亚，意大利
+###### "火环”日环食，多哈，卡特尔
 
-![](https://www.bing.com/th?id=OHR.ViesteItaly_ZH-CN6693499674_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RingEclipse_ZH-CN7063841581_UHD.jpg)
 
 ## 归档
 
