@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231013 - 它燃烧，燃烧，燃烧
+## 20231014 - 该位置已被占领
 
-###### "火环”日环食，多哈，卡特尔
+###### 躲在树皮中欧洲刺猬，苏塞克斯，英国
 
-![](https://www.bing.com/th?id=OHR.RingEclipse_ZH-CN7063841581_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnHedgehog_ZH-CN7309314630_UHD.jpg)
 
 ## 归档
 
