@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231015 - 确实令人着迷
+## 20231016 - 赤血群岛的守护者
 
-###### 金色落叶松和普鲁西克峰，魔力地带，华盛顿州，美国
+###### 帕拉塔塔,阿雅克肖,科西嘉岛,法国
 
-![](https://www.bing.com/th?id=OHR.GoldenEnchantments_ZH-CN9686531344_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_UHD.jpg)
 
 ## 归档
 
