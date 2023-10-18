@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231016 - 赤血群岛的守护者
+## 20231017 - 西沃德的财富
 
-###### 帕拉塔塔,阿雅克肖,科西嘉岛,法国
+###### 科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国
 
-![](https://www.bing.com/th?id=OHR.GenoeseTower_ZH-CN0086623003_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_UHD.jpg)
 
 ## 归档
 
