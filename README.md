@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231017 - 西沃德的财富
+## 20231018 - 去而复返
 
-###### 科迪亚克国家野生动物保护区，科迪亚克岛，阿拉斯加州，美国
+###### Castell y Gwynt，格莱德法赫山，雪墩山国家公园，英国北威尔士
 
-![](https://www.bing.com/th?id=OHR.KodiakAlaska_ZH-CN0627619150_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CastellyGwyntUK_ZH-CN1219668479_UHD.jpg)
 
 ## 归档
 
