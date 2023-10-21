@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231019 - 你想“挂”着玩吗？
+## 20231020 - 哇，真是松了一口气！
 
-###### 俾格米三趾树懒宝宝，埃斯库多贝拉瓜斯岛，巴拿马
+###### 波斯古城波斯波利斯的浮雕，伊朗
 
-![](https://www.bing.com/th?id=OHR.PygmySloth_ZH-CN4739853522_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PersepolisRelief_ZH-CN4910990690_UHD.jpg)
 
 ## 归档
 
