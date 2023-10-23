@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231021 - 一条用桁架架起来的公路
+## 20231022 - “迷”人之境
 
-###### 哥伦比亚河上的阿斯托里亚-梅格勒大桥，阿斯托里亚区，俄勒冈州，美国
+###### 塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.AstoriaBridge_ZH-CN5052905610_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_UHD.jpg)
 
 ## 归档
 
