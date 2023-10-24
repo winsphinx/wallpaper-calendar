@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231022 - “迷”人之境
+## 20231023 - 这片迷雾密布的树林里潜藏着什么?
 
-###### 塞勒斯堡的玉米迷宫，宾夕法尼亚州，美国
+###### 桑佩伦山上的菲泽尔城堡，匈牙利
 
-![](https://www.bing.com/th?id=OHR.PoconosMaze_ZH-CN4696904367_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_UHD.jpg)
 
 ## 归档
 
