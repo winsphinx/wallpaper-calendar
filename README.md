@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231023 - 这片迷雾密布的树林里潜藏着什么?
+## 20231024 - 秋天的一抹金色
 
-###### 桑佩伦山上的菲泽尔城堡，匈牙利
+###### 大阶梯埃斯卡兰特国家纪念区中的棉白杨树，犹他州，美国
 
-![](https://www.bing.com/th?id=OHR.FuzerCastle_ZH-CN5485191349_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GrandStaircase_ZH-CN5928937512_UHD.jpg)
 
 ## 归档
 
