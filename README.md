@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231025 - 落叶爱好者的天堂
+## 20231026 - 魔法之河深不见底
 
-###### 美泉宫公园的秋叶，维也纳，奥地利
+###### 斯利加坎老桥，苏格兰斯凯岛
 
-![](https://www.bing.com/th?id=OHR.ViennaAutumn_ZH-CN7011999199_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_UHD.jpg)
 
 ## 归档
 
