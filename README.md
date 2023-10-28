@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231026 - 魔法之河深不见底
+## 20231027 - 西班牙骑士的“劲敌”
 
-###### 斯利加坎老桥，苏格兰斯凯岛
+###### 卡斯蒂利亚-拉曼恰的风车，西班牙
 
-![](https://www.bing.com/th?id=OHR.OldBridgeSkye_ZH-CN7228411986_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_UHD.jpg)
 
 ## 归档
 
