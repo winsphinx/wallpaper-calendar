@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231027 - 西班牙骑士的“劲敌”
+## 20231028 - 天黑后，你还敢待在这里吗？
 
-###### 卡斯蒂利亚-拉曼恰的风车，西班牙
+###### 博纳温彻墓地，萨凡纳，佐治亚州，美国
 
-![](https://www.bing.com/th?id=OHR.FiveWinds_ZH-CN7503464049_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_UHD.jpg)
 
 ## 归档
 
