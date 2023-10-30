@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231028 - 天黑后，你还敢待在这里吗？
+## 20231029 - 黑衣美人
 
-###### 博纳温彻墓地，萨凡纳，佐治亚州，美国
+###### 普通乌鸦坐在树枝上
 
-![](https://www.bing.com/th?id=OHR.SavannahSculpture_ZH-CN7663694208_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_UHD.jpg)
 
 ## 归档
 
