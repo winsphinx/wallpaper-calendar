@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231029 - 黑衣美人
+## 20231030 - 恶灵们只想玩个开心。
 
-###### 普通乌鸦坐在树枝上
+###### 万圣节南瓜灯
 
-![](https://www.bing.com/th?id=OHR.AutumnRaven_ZH-CN7897841947_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_UHD.jpg)
 
 ## 归档
 
