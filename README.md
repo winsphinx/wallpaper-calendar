@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231030 - 恶灵们只想玩个开心。
+## 20231031 - 你知道“阿尔萨斯之眼”吗？
 
-###### 万圣节南瓜灯
+###### 上巴尔城堡，阿尔萨斯，法国
 
-![](https://www.bing.com/th?id=OHR.HalloweenCuteAI_ZH-CN1079713117_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HautBarr_ZH-CN8274813404_UHD.jpg)
 
 ## 归档
 
