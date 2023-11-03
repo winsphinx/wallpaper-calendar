@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231101 - 这里，此生值得一去
+## 20231102 - 发光的花朵
 
-###### 恶水盆地的盐滩，死亡谷国家公园，加利福尼亚州，美国
+###### 卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国
 
-![](https://www.bing.com/th?id=OHR.DeathValleySalt_ZH-CN8438207719_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_UHD.jpg)
 
 ## 归档
 
