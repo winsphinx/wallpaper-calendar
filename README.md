@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231102 - 发光的花朵
+## 20231103 - 为寒冷而生！
 
-###### 卡梅尔海岸的太平洋海荨麻水母，加利福尼亚，美国
+###### 美洲野牛，黄石国家公园，怀俄明州，美国
 
-![](https://www.bing.com/th?id=OHR.SeaNettles_ZH-CN1735729435_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_UHD.jpg)
 
 ## 归档
 
