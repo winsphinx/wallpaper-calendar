@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231103 - 为寒冷而生！
+## 20231104 - 宁静之地
 
-###### 美洲野牛，黄石国家公园，怀俄明州，美国
+###### 石英岩地层，普拉亚德尔锡伦西奥，西班牙
 
-![](https://www.bing.com/th?id=OHR.BisonSnow_ZH-CN2483472629_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_UHD.jpg)
 
 ## 归档
 
