@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231104 - 宁静之地
+## 20231105 - 照亮你忧郁的心
 
-###### 石英岩地层，普拉亚德尔锡伦西奥，西班牙
+###### 佩霍湖，百内国家公园，智利南部
 
-![](https://www.bing.com/th?id=OHR.SilencioSpain_ZH-CN2955614478_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_UHD.jpg)
 
 ## 归档
 
