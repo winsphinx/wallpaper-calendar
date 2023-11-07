@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231105 - 照亮你忧郁的心
+## 20231106 - 瞭望塔上，一睹奇景！
 
-###### 佩霍湖，百内国家公园，智利南部
+###### Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛
 
-![](https://www.bing.com/th?id=OHR.LagoPehoe_ZH-CN3367356273_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_UHD.jpg)
 
 ## 归档
 
