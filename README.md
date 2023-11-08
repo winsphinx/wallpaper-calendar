@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231106 - 瞭望塔上，一睹奇景！
+## 20231107 - 冬日里的壮丽美景
 
-###### Kirkilai湖泊和瞭望塔，比尔扎伊地区公园，立陶宛
+###### 黄山的日落，安徽省，中国
 
-![](https://www.bing.com/th?id=OHR.KirkilaiTower_ZH-CN4058404632_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_UHD.jpg)
 
 ## 归档
 
