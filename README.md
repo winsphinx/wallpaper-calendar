@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231107 - 冬日里的壮丽美景
+## 20231108 - 秋天的影子
 
-###### 黄山的日落，安徽省，中国
+###### 秋天的白桦树，德拉门，挪威
 
-![](https://www.bing.com/th?id=OHR.LiDong2023_ZH-CN5089092069_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_UHD.jpg)
 
 ## 归档
 
