@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231108 - 秋天的影子
+## 20231109 - 还不错的荒地
 
-###### 秋天的白桦树，德拉门，挪威
+###### 恶地国家公园，南达科他州，美国
 
-![](https://www.bing.com/th?id=OHR.NorwayBirch_ZH-CN5482311438_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_UHD.jpg)
 
 ## 归档
 
