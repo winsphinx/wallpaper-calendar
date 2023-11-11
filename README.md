@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231109 - 还不错的荒地
+## 20231110 - 如诗如画的地方
 
-###### 恶地国家公园，南达科他州，美国
+###### 富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利
 
-![](https://www.bing.com/th?id=OHR.BadlandsSunrise_ZH-CN5906162228_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_UHD.jpg)
 
 ## 归档
 
