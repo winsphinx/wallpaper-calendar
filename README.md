@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231110 - 如诗如画的地方
+## 20231111 - 我所有的小鸭子们
 
-###### 富内斯山谷，背景是多洛米蒂山，南蒂罗尔，意大利
+###### 秋天池塘里的两只绿头鸭
 
-![](https://www.bing.com/th?id=OHR.ValDiFunes_ZH-CN2080915930_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_UHD.jpg)
 
 ## 归档
 
