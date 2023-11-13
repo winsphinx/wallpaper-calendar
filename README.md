@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231111 - 我所有的小鸭子们
+## 20231112 - 从树上到餐桌之上
 
-###### 秋天池塘里的两只绿头鸭
+###### 特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙
 
-![](https://www.bing.com/th?id=OHR.MallarDucks_ZH-CN7422818269_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_UHD.jpg)
 
 ## 归档
 
