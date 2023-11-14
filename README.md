@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231112 - 从树上到餐桌之上
+## 20231113 - 让人又爱又恨的花田
 
-###### 特拉蒙塔纳山中的老橄榄园，马略卡岛，西班牙
+###### 特卡波湖沿岸的鲁冰花，南岛，新西兰
 
-![](https://www.bing.com/th?id=OHR.OliveOrchard_ZH-CN8198989130_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_UHD.jpg)
 
 ## 归档
 
