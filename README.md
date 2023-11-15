@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231113 - 让人又爱又恨的花田
+## 20231114 - 想象一下此处的回声
 
-###### 特卡波湖沿岸的鲁冰花，南岛，新西兰
+###### 萨雷克国家公园的拉帕谷，瑞典
 
-![](https://www.bing.com/th?id=OHR.RussellLupines_ZH-CN8552113285_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_UHD.jpg)
 
 ## 归档
 
