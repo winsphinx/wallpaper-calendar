@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231114 - 想象一下此处的回声
+## 20231115 - 西方哲学的发源地
 
-###### 萨雷克国家公园的拉帕谷，瑞典
+###### 雅典和卫城，希腊
 
-![](https://www.bing.com/th?id=OHR.SarekSweden_ZH-CN9728518595_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_UHD.jpg)
 
 ## 归档
 
