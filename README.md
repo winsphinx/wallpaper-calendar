@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231115 - 西方哲学的发源地
+## 20231116 - 该给靴子系上鞋带了！
 
-###### 雅典和卫城，希腊
+###### 铜瀑布州立公园的巴德河，威斯康星州，美国
 
-![](https://www.bing.com/th?id=OHR.AthensAcropolis_ZH-CN9942357439_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BadRiver_ZH-CN0416550169_UHD.jpg)
 
 ## 归档
 
