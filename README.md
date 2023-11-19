@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231117 - 寒地温情
+## 20231118 - 谨慎行事！
 
-###### 北极熊妈妈和幼崽，丘吉尔城，曼尼托巴省，加拿大
+###### Alam-Pedja自然保护区，爱沙尼亚
 
-![](https://www.bing.com/th?id=OHR.MilsePolarBear_ZH-CN0567475122_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FrozenBog_ZH-CN0712859386_UHD.jpg)
 
 ## 归档
 
