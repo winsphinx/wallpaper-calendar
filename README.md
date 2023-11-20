@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231118 - 谨慎行事！
+## 20231119 - 童话城堡
 
-###### Alam-Pedja自然保护区，爱沙尼亚
+###### 科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲
 
-![](https://www.bing.com/th?id=OHR.FrozenBog_ZH-CN0712859386_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_UHD.jpg)
 
 ## 归档
 
