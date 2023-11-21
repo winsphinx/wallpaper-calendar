@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231119 - 童话城堡
+## 20231120 - 欢迎来到这个世界！
 
-###### 科奇城堡，Tongwynlais，卡迪夫，威尔士，英国，欧洲
+###### 英国诺福克海滩上的灰海豹幼崽
 
-![](https://www.bing.com/th?id=OHR.CastleCoch_ZH-CN0917284602_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_UHD.jpg)
 
 ## 归档
 
