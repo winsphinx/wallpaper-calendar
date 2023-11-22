@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231120 - 欢迎来到这个世界！
+## 20231121 - 人少景美的静谧之地
 
-###### 英国诺福克海滩上的灰海豹幼崽
+###### 大提顿国家公园，怀俄明州，美国
 
-![](https://www.bing.com/th?id=OHR.HelloSeal_ZH-CN1064568368_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_UHD.jpg)
 
 ## 归档
 
