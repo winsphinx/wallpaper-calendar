@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231121 - 人少景美的静谧之地
+## 20231122 - 从深海到天空
 
-###### 大提顿国家公园，怀俄明州，美国
+###### 泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙
 
-![](https://www.bing.com/th?id=OHR.SnakeRiverTeton_ZH-CN1213535303_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_UHD.jpg)
 
 ## 归档
 
