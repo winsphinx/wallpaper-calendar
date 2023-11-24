@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231122 - 从深海到天空
+## 20231123 - 不一样的热带雨林
 
-###### 泰德国家公园的日落，特内里费岛，加那利群岛, 西班牙
+###### 奥林匹克国家公园霍河雨林中的苔藓大厅 ，华盛顿州，美国
 
-![](https://www.bing.com/th?id=OHR.TeideNational_ZH-CN1367200520_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HallofMosses_ZH-CN1565129809_UHD.jpg)
 
 ## 归档
 
