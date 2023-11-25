@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231123 - 不一样的热带雨林
+## 20231124 - 永恒之城托莱多
 
-###### 奥林匹克国家公园霍河雨林中的苔藓大厅 ，华盛顿州，美国
+###### 托莱多，西班牙
 
-![](https://www.bing.com/th?id=OHR.HallofMosses_ZH-CN1565129809_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TajoRiver_ZH-CN1752559204_UHD.jpg)
 
 ## 归档
 
