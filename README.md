@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231124 - 永恒之城托莱多
+## 20231125 - 谁踩到树枝了?
 
-###### 托莱多，西班牙
+###### 布拉德盖特公园的小鹿，莱斯特郡，英国
 
-![](https://www.bing.com/th?id=OHR.TajoRiver_ZH-CN1752559204_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BradgateFallow_ZH-CN1852334581_UHD.jpg)
 
 ## 归档
 
