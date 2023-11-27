@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231125 - 谁踩到树枝了?
+## 20231126 - 水上明镜
 
-###### 布拉德盖特公园的小鹿，莱斯特郡，英国
+###### 内格罗河，亚马逊河流域，巴西
 
-![](https://www.bing.com/th?id=OHR.BradgateFallow_ZH-CN1852334581_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_UHD.jpg)
 
 ## 归档
 
