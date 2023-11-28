@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231126 - 水上明镜
+## 20231127 - 冬日私语
 
-###### 内格罗河，亚马逊河流域，巴西
+###### 阿西尼博因山省级公园，加拿大
 
-![](https://www.bing.com/th?id=OHR.RioNegro_ZH-CN2121977810_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_UHD.jpg)
 
 ## 归档
 
