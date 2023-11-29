@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231127 - 冬日私语
+## 20231128 - 童话中的城堡
 
-###### 阿西尼博因山省级公园，加拿大
+###### 什未林湖上的什未林城堡，梅克伦堡-前波美拉尼亚州，德国
 
-![](https://www.bing.com/th?id=OHR.AssiniboineProvincialPark_ZH-CN2270275151_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SchwerinerSchloss_ZH-CN2390476345_UHD.jpg)
 
 ## 归档
 
