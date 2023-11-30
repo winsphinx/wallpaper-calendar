@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231128 - 童话中的城堡
+## 20231129 - 守望的老人
 
-###### 什未林湖上的什未林城堡，梅克伦堡-前波美拉尼亚州，德国
+###### 斯托尔，斯凯岛上展露的岩石尖峰，苏格兰，英国
 
-![](https://www.bing.com/th?id=OHR.SchwerinerSchloss_ZH-CN2390476345_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TrotternishStorr_ZH-CN2508882441_UHD.jpg)
 
 ## 归档
 
