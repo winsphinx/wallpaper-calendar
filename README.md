@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231129 - 守望的老人
+## 20231130 - 为最酷的地方欢呼！
 
-###### 斯托尔，斯凯岛上展露的岩石尖峰，苏格兰，英国
+###### 罗斯海的冰山，南极洲
 
-![](https://www.bing.com/th?id=OHR.TrotternishStorr_ZH-CN2508882441_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IcebergAntarctica_ZH-CN2053356825_UHD.jpg)
 
 ## 归档
 
