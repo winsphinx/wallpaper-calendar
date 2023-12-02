@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20231130 - 为最酷的地方欢呼！
+## 20231201 - 永恒的瑰宝
 
-###### 罗斯海的冰山，南极洲
+###### 瓜廖尔堡，中央邦，印度
 
-![](https://www.bing.com/th?id=OHR.IcebergAntarctica_ZH-CN2053356825_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GwaliorFortMP_ZH-CN3300432281_UHD.jpg)
 
 ## 归档
 
+| [202312](/202312/README.md)
 | [202311](/202311/README.md)
 | [202310](/202310/README.md)
 | [202309](/202309/README.md)
