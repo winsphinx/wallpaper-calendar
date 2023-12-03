@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231201 - 永恒的瑰宝
+## 20231202 - 时光雕琢
 
-###### 瓜廖尔堡，中央邦，印度
+###### 砂岩岩层，红悬崖国家保护区，亚利桑那州，美国
 
-![](https://www.bing.com/th?id=OHR.GwaliorFortMP_ZH-CN3300432281_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VermilionCliffs_ZH-CN3945784250_UHD.jpg)
 
 ## 归档
 
