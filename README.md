@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231203 - 机敏可爱的捕猎高手
+## 20231204 - 童话故事中的场景
 
-###### 一只猎豹妈妈和她的幼崽，马赛马拉国家保护区，肯尼亚
+###### 天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国
 
-![](https://www.bing.com/th?id=OHR.CheetahDay_ZH-CN5114530695_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_UHD.jpg)
 
 ## 归档
 
