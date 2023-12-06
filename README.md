@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231204 - 童话故事中的场景
+## 20231205 - 穿过群山的蜿蜒小路
 
-###### 天鹅堡和旧天鹅堡，巴伐利亚阿尔卑斯山，德国
+###### 达尔达尼亚瀑布，博洛尼亚，意大利
 
-![](https://www.bing.com/th?id=OHR.AlpsCastles_ZH-CN5078013932_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_UHD.jpg)
 
 ## 归档
 
