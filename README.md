@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231205 - 穿过群山的蜿蜒小路
+## 20231206 - 欧洲大峡谷
 
-###### 达尔达尼亚瀑布，博洛尼亚，意大利
+###### 韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国
 
-![](https://www.bing.com/th?id=OHR.DardagnaWaterfalls_ZH-CN5613123621_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_UHD.jpg)
 
 ## 归档
 
