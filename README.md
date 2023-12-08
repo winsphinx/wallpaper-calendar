@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231206 - 欧洲大峡谷
+## 20231207 - 不是那个泽西海岸!
 
-###### 韦尔东峡谷的雾蒙蒙的早晨，普罗旺斯-阿尔卑斯-蓝色海岸大区，法国
+###### 拉罗克港，圣克莱门特，泽西岛
 
-![](https://www.bing.com/th?id=OHR.GrandCanyonVerdon_ZH-CN6025902720_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_UHD.jpg)
 
 ## 归档
 
