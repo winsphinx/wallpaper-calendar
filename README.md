@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231207 - 不是那个泽西海岸!
+## 20231208 - 出逃的美洲鸵
 
-###### 拉罗克港，圣克莱门特，泽西岛
+###### 原驼，冰川国家公园，阿根廷
 
-![](https://www.bing.com/th?id=OHR.JerseyIsland_ZH-CN6224973235_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_UHD.jpg)
 
 ## 归档
 
