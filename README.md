@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231208 - 出逃的美洲鸵
+## 20231209 - 一个让人沉思的地方
 
-###### 原驼，冰川国家公园，阿根廷
+###### 林帕达恩湖，斯诺登尼亚国家公园， 威尔士
 
-![](https://www.bing.com/th?id=OHR.PatagoniaGuanaco_ZH-CN6438038982_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_UHD.jpg)
 
 ## 归档
 
