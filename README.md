@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231209 - 一个让人沉思的地方
+## 20231210 - 想看看黄山的全貌吗？
 
-###### 林帕达恩湖，斯诺登尼亚国家公园， 威尔士
+###### 黄山的冬天，中国
 
-![](https://www.bing.com/th?id=OHR.LlanberisSnowdoniaSunset_ZH-CN6682238671_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_UHD.jpg)
 
 ## 归档
 
