@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231210 - 想看看黄山的全貌吗？
+## 20231211 - 把你的世界涂成红色
 
-###### 黄山的冬天，中国
+###### 一品红
 
-![](https://www.bing.com/th?id=OHR.MountainDayChina_ZH-CN6894169616_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Poinsettia_ZH-CN7255902344_UHD.jpg)
 
 ## 归档
 
