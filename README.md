@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231211 - 把你的世界涂成红色
+## 20231212 - 小屋生活
 
-###### 一品红
+###### 传统钓鱼小屋，斯沃尔韦尔，罗弗敦群岛，挪威
 
-![](https://www.bing.com/th?id=OHR.Poinsettia_ZH-CN7255902344_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LofotenRorbu_ZH-CN7790383976_UHD.jpg)
 
 ## 归档
 
