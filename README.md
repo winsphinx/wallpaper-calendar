@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231213 - 融为一体的猫头鹰
+## 20231214 - 圣诞老人的乐园
 
-###### 北方猫头鹰，萨斯喀彻温省，加拿大
+###### 罗瓦涅米的圣诞老人公园，拉普兰德，芬兰
 
-![](https://www.bing.com/th?id=OHR.BorealOwl_ZH-CN7957240111_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SantaPark_ZH-CN7444715899_UHD.jpg)
 
 ## 归档
 
