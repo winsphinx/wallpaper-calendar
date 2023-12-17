@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231215 - 令人愉悦的忧郁蓝
+## 20231216 - 有羽毛的时尚达人
 
-###### 大广场，布鲁塞尔，比利时
+###### 波西米亚太平鸟栖息在树枝上，加拿大
 
-![](https://www.bing.com/th?id=OHR.GrandPlaceXmas_ZH-CN8299342316_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WinterWaxwings_ZH-CN9274297835_UHD.jpg)
 
 ## 归档
 
