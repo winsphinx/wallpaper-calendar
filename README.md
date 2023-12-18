@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231216 - 有羽毛的时尚达人
+## 20231217 - 山峦积雪
 
-###### 波西米亚太平鸟栖息在树枝上，加拿大
+###### 圆顶礁国家公园，犹他州，美国
 
-![](https://www.bing.com/th?id=OHR.WinterWaxwings_ZH-CN9274297835_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CapitolReefSnow_ZH-CN0085775882_UHD.jpg)
 
 ## 归档
 
