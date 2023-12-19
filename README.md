@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231217 - 山峦积雪
+## 20231218 - 圣诞老人的波兰休息站
 
-###### 圆顶礁国家公园，犹他州，美国
+###### 城堡广场的圣诞树，华沙古城，波兰
 
-![](https://www.bing.com/th?id=OHR.CapitolReefSnow_ZH-CN0085775882_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_UHD.jpg)
 
 ## 归档
 
