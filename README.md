@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231218 - 圣诞老人的波兰休息站
+## 20231219 - 多洛米蒂山之光
 
-###### 城堡广场的圣诞树，华沙古城，波兰
+###### 圣诞节期间的瓦尔加迪纳山谷的村庄，多洛米蒂山，意大利
 
-![](https://www.bing.com/th?id=OHR.WarsawChristmas_ZH-CN0949732911_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ValGardenaItaly_ZH-CN2405437494_UHD.jpg)
 
 ## 归档
 
