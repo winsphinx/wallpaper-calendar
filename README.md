@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231220 - 斯洛文尼亚式的节日氛围
+## 20231221 - 冬季仙境中的精灵
 
-###### 卢布尔雅那，斯洛文尼亚共和国
+###### 天鹅泉湿地公园，伊犁，新疆，中国
 
-![](https://www.bing.com/th?id=OHR.LjubljanaLights_ZH-CN3179297953_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_UHD.jpg)
 
 ## 归档
 
