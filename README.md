@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231221 - 冬季仙境中的精灵
+## 20231222 - 它们看起来有话要说
 
-###### 天鹅泉湿地公园，伊犁，新疆，中国
+###### 帽带企鹅，南桑威奇群岛，南大西洋
 
-![](https://www.bing.com/th?id=OHR.WinterSolstice2023_ZH-CN4450201916_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_UHD.jpg)
 
 ## 归档
 
