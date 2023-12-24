@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231222 - 它们看起来有话要说
+## 20231223 - 多么可爱的树枝啊！
 
-###### 帽带企鹅，南桑威奇群岛，南大西洋
+###### 市政厅广场，塔尔图，爱沙尼亚
 
-![](https://www.bing.com/th?id=OHR.FestivusPenguins_ZH-CN5191348531_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_UHD.jpg)
 
 ## 归档
 
