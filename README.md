@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231223 - 多么可爱的树枝啊！
+## 20231224 - 圣诞快乐，亲爱的朋友们！
 
-###### 市政厅广场，塔尔图，爱沙尼亚
+###### 驯鹿在雪中奔跑，阿拉斯加，美国
 
-![](https://www.bing.com/th?id=OHR.EstoniaXmasEve_ZH-CN5870799404_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_UHD.jpg)
 
 ## 归档
 
