@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231224 - 圣诞快乐，亲爱的朋友们！
+## 20231225 - 节礼日快乐
 
-###### 驯鹿在雪中奔跑，阿拉斯加，美国
+###### 冬季日出，戴德姆，科尔切斯特，英格兰
 
-![](https://www.bing.com/th?id=OHR.CaribouChristmas_ZH-CN6264028572_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_UHD.jpg)
 
 ## 归档
 
