@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231225 - 节礼日快乐
+## 20231226 - 冰与火之地
 
-###### 冬季日出，戴德姆，科尔切斯特，英格兰
+###### 教堂山，斯奈山半岛，冰岛
 
-![](https://www.bing.com/th?id=OHR.BoxingDaySunrise_ZH-CN7431512686_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_UHD.jpg)
 
 ## 归档
 
