@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231226 - 冰与火之地
+## 20231227 - 跳出“濒危名单”
 
-###### 教堂山，斯奈山半岛，冰岛
+###### 座头鲸，迪斯科湾，格陵兰
 
-![](https://www.bing.com/th?id=OHR.KirkjufellAurora_ZH-CN7878752057_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GreenlandHumpback_ZH-CN8145852053_UHD.jpg)
 
 ## 归档
 
