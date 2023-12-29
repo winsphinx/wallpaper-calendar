@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231227 - 跳出“濒危名单”
+## 20231228 - 旧西街区的故事
 
-###### 座头鲸，迪斯科湾，格陵兰
+###### 旧西街区，阿姆斯特丹 ，荷兰
 
-![](https://www.bing.com/th?id=OHR.GreenlandHumpback_ZH-CN8145852053_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BlueAmsterdam_ZH-CN0483591394_UHD.jpg)
 
 ## 归档
 
