@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231228 - 旧西街区的故事
+## 20231229 - 古石圈
 
-###### 旧西街区，阿姆斯特丹 ，荷兰
+###### 卡塞里格石圈，湖区国家公园 ，坎布里亚，英国
 
-![](https://www.bing.com/th?id=OHR.BlueAmsterdam_ZH-CN0483591394_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CastleriggStoneCircleUK_ZH-CN1174541384_UHD.jpg)
 
 ## 归档
 
