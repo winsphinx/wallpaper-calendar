@@ -11,7 +11,7 @@ jobs:
 
     steps:
     - name: Setup repository
-      uses: actions/checkout@v3
+      uses: actions/checkout@v7
 
     - name: Update files
       run: |
@@ -21,7 +21,7 @@ jobs:
         echo "TIME=$(date +'%Y-%m-%d %H:%M:%S')" >> "$GITHUB_ENV"
 
     - name: Commit files
-      uses: EndBug/add-and-commit@v9
+      uses: EndBug/add-and-commit@v10
       with:
         message: "Update Daily Wallpaper at ${{ env.TIME }}"
 

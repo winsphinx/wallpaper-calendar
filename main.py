@@ -13,8 +13,10 @@ class Calendar:
         url = "https://www.bing.com/HPImageArchive.aspx?format=js&idx=0&n=1&mkt=zh-CN"
         response = requests.get(url).json()["images"][0]
         image = response["urlbase"]
+        date = response["startdate"]
+        real_date = datetime.datetime.strptime(date, "%Y%m%d") + datetime.timedelta(days=1)
 
-        self.day = response["startdate"]
+        self.day = real_date.strftime("%Y%m%d")
         self.month = self.day[:6]
         self.thumbnail = f"https://www.bing.com{image}_320x240.jpg"
         self.uhd = f"https://www.bing.com{image}_UHD.jpg"
