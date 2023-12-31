@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231229 - 古石圈
+## 20231230 - 明年见!
 
-###### 卡塞里格石圈，湖区国家公园 ，坎布里亚，英国
+###### 帕那空奇里上空的烟花，碧武里府,泰国
 
-![](https://www.bing.com/th?id=OHR.CastleriggStoneCircleUK_ZH-CN1174541384_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ThailandNewYears_ZH-CN2058192262_UHD.jpg)
 
 ## 归档
 
