@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20231230 - 明年见!
+## 20231231 - 新年伊始
 
-###### 帕那空奇里上空的烟花，碧武里府,泰国
+###### 睡在雪地里的赤狐，阿布鲁佐，意大利
 
-![](https://www.bing.com/th?id=OHR.ThailandNewYears_ZH-CN2058192262_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SleepingFox_ZH-CN2622967726_UHD.jpg)
 
 ## 归档
 
