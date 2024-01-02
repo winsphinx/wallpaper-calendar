@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240101 - 新年伊始
+## 20240102 - 百年城堡
 
-###### 睡在雪地里的赤狐，阿布鲁佐，意大利
+###### 贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度
 
-![](https://www.bing.com/th?id=OHR.SleepingFox_ZH-CN2622967726_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MehrangarhJodhpur_ZH-CN2855490711_UHD.jpg)
 
 ## 归档
 
