@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240102 - 百年城堡
+## 20240103 - 星光璀璨
 
-###### 贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度
+###### 明尼汪卡湖，阿尔伯塔省，加拿大
 
-![](https://www.bing.com/th?id=OHR.MehrangarhJodhpur_ZH-CN2855490711_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MinnewankaLake_ZH-CN3020982568_UHD.jpg)
 
 ## 归档
 
