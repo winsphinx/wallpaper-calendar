@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240103 - 星光璀璨
+## 20240104 - 雾锁金门
 
-###### 明尼汪卡湖，阿尔伯塔省，加拿大
+###### 金门大桥，旧金山，加利福尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.MinnewankaLake_ZH-CN3020982568_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GoldenGateLight_ZH-CN3874822904_UHD.jpg)
 
 ## 归档
 
