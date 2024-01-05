@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240104 - 雾锁金门
+## 20240105 - 是现实还是童话？
 
-###### 金门大桥，旧金山，加利福尼亚州，美国
+###### 巴伐利亚阿尔卑斯山脉，德国
 
-![](https://www.bing.com/th?id=OHR.GoldenGateLight_ZH-CN3874822904_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlpsReflecting_ZH-CN4036320440_UHD.jpg)
 
 ## 归档
 
