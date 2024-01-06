@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240105 - 是现实还是童话？
+## 20240106 - 薅一个苹果！
 
-###### 巴伐利亚阿尔卑斯山脉，德国
+###### 冬天，雄性苍头燕雀栖息在海棠果树上
 
-![](https://www.bing.com/th?id=OHR.AlpsReflecting_ZH-CN4036320440_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CrabappleChaffinch_ZH-CN4458529756_UHD.jpg)
 
 ## 归档
 
