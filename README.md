@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240106 - 薅一个苹果！
+## 20240107 - 大自然的平衡术
 
-###### 冬天，雄性苍头燕雀栖息在海棠果树上
+###### 魔鬼大理石保护区，澳大利亚
 
-![](https://www.bing.com/th?id=OHR.CrabappleChaffinch_ZH-CN4458529756_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DevilsMarbles_ZH-CN4897809914_UHD.jpg)
 
 ## 归档
 
