@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240107 - 大自然的平衡术
+## 20240108 - 瑞士的雪花漱漱落下
 
-###### 魔鬼大理石保护区，澳大利亚
+###### 贝尔尼纳山口的滑雪场，格劳宾登州，瑞士
 
-![](https://www.bing.com/th?id=OHR.DevilsMarbles_ZH-CN4897809914_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_UHD.jpg)
 
 ## 归档
 
