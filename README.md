@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240108 - 瑞士的雪花漱漱落下
+## 20240109 - 乘着热气球向上飞
 
-###### 贝尔尼纳山口的滑雪场，格劳宾登州，瑞士
+###### 格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国
 
-![](https://www.bing.com/th?id=OHR.BerninaPass_ZH-CN5776010452_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_UHD.jpg)
 
 ## 归档
 
