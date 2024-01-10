@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240109 - 乘着热气球向上飞
+## 20240110 - 迎接挑战！
 
-###### 格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国
+###### 米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊
 
-![](https://www.bing.com/th?id=OHR.BalloonDay_ZH-CN7571792218_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_UHD.jpg)
 
 ## 归档
 
