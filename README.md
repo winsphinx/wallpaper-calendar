@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240110 - 迎接挑战！
+## 20240111 - 长胡须的“流浪汉”
 
-###### 米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊
+###### 雪中的欧亚猞猁
 
-![](https://www.bing.com/th?id=OHR.MilopotamosStairs_ZH-CN8013521384_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LynxSnow_ZH-CN8908082275_UHD.jpg)
 
 ## 归档
 
