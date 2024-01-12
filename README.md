@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240111 - 长胡须的“流浪汉”
+## 20240112 - 北汉山的花岗岩山峰
 
-###### 雪中的欧亚猞猁
+###### 北汉山国立公园，韩国
 
-![](https://www.bing.com/th?id=OHR.LynxSnow_ZH-CN8908082275_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BukhansanSeoul_ZH-CN8002920750_UHD.jpg)
 
 ## 归档
 
