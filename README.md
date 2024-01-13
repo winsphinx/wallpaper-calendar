@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240112 - 北汉山的花岗岩山峰
+## 20240113 - 放慢脚步，享受旅途！
 
-###### 北汉山国立公园，韩国
+###### 哈纳之路，毛伊岛，夏威夷，美国
 
-![](https://www.bing.com/th?id=OHR.BukhansanSeoul_ZH-CN8002920750_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HanaHighway_ZH-CN8601588011_UHD.jpg)
 
 ## 归档
 
