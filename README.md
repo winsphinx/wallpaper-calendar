@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240113 - 放慢脚步，享受旅途！
+## 20240114 - 白色羽毛交响曲
 
-###### 哈纳之路，毛伊岛，夏威夷，美国
+###### 屈斜路湖的天鹅，日本
 
-![](https://www.bing.com/th?id=OHR.HanaHighway_ZH-CN8601588011_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_UHD.jpg)
 
 ## 归档
 
