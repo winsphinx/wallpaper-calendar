@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240114 - 白色羽毛交响曲
+## 20240115 - 在地球上还是在外星？
 
-###### 屈斜路湖的天鹅，日本
+###### 瓦茨曼山脚下的冰教堂，巴伐利亚，德国
 
-![](https://www.bing.com/th?id=OHR.HokkaidoSwans_ZH-CN8733312972_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_UHD.jpg)
 
 ## 归档
 
