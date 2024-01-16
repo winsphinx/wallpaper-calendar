@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240115 - 在地球上还是在外星？
+## 20240116 - 加拿大式的小憩和放松
 
-###### 瓦茨曼山脚下的冰教堂，巴伐利亚，德国
+###### 路易斯湖，班夫国家公园，阿尔伯塔省，加拿大
 
-![](https://www.bing.com/th?id=OHR.IceChapel_ZH-CN9189733666_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LakeLouise_ZH-CN9592539152_UHD.jpg)
 
 ## 归档
 
