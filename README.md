@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240116 - 加拿大式的小憩和放松
+## 20240117 - 天气暖和了再叫醒我
 
-###### 路易斯湖，班夫国家公园，阿尔伯塔省，加拿大
+###### 巴伐利亚森林国家公园里睡觉的狼，德国
 
-![](https://www.bing.com/th?id=OHR.LakeLouise_ZH-CN9592539152_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SleepyWolf_ZH-CN9870873990_UHD.jpg)
 
 ## 归档
 
