@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240117 - 天气暖和了再叫醒我
+## 20240118 - 在飞马珀伽索斯的守望之下
 
-###### 巴伐利亚森林国家公园里睡觉的狼，德国
+###### 黄昏时分的亚历山大三世桥，巴黎，法国
 
-![](https://www.bing.com/th?id=OHR.SleepyWolf_ZH-CN9870873990_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ParisBridge_ZH-CN0173421630_UHD.jpg)
 
 ## 归档
 
