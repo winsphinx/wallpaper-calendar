@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240118 - 在飞马珀伽索斯的守望之下
+## 20240119 - 瀑布变“冰瀑”
 
-###### 黄昏时分的亚历山大三世桥，巴黎，法国
+###### 十六湖国家公园，克罗地亚
 
-![](https://www.bing.com/th?id=OHR.ParisBridge_ZH-CN0173421630_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PlitviceWinter_ZH-CN0407572344_UHD.jpg)
 
 ## 归档
 
