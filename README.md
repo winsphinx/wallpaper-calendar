@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240119 - 瀑布变“冰瀑”
+## 20240120 - 冰雪极地的马可罗尼企鹅
 
-###### 十六湖国家公园，克罗地亚
+###### 马可罗尼企鹅，德雷克海峡，智利
 
-![](https://www.bing.com/th?id=OHR.PlitviceWinter_ZH-CN0407572344_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MacaroniPenguins_ZH-CN0600867997_UHD.jpg)
 
 ## 归档
 
