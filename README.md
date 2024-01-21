@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240120 - 冰雪极地的马可罗尼企鹅
+## 20240121 - 树梢上的故事
 
-###### 马可罗尼企鹅，德雷克海峡，智利
+###### 欧亚红松鼠，荷兰
 
-![](https://www.bing.com/th?id=OHR.MacaroniPenguins_ZH-CN0600867997_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SquirrelNetherlands_ZH-CN0757138587_UHD.jpg)
 
 ## 归档
 
