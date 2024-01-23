@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240122 - 魔幻时刻
+## 20240123 - 印度洋之眼
 
-###### 冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国
+###### 印度洋的环礁，马尔代夫
 
-![](https://www.bing.com/th?id=OHR.SantaCruzSunrise_ZH-CN3074203377_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_UHD.jpg)
 
 ## 归档
 
