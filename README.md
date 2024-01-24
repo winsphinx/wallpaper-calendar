@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240123 - 印度洋之眼
+## 20240124 - 撒了一地的“钻石”
 
-###### 印度洋的环礁，马尔代夫
+###### 钻石冰沙滩，冰岛
 
-![](https://www.bing.com/th?id=OHR.MaldivesAtolls_ZH-CN1365670653_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IcelandBeach_ZH-CN1632329693_UHD.jpg)
 
 ## 归档
 
