@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240125 - 通往过去的入口
+## 20240126 - 不是夜猫子
 
-###### 圣德温教堂的废墟，莫纳岛，威尔士，英国
+###### 北鹰鸮
 
-![](https://www.bing.com/th?id=OHR.DwynwensDay_ZH-CN1768649253_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_UHD.jpg)
 
 ## 归档
 
