@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240126 - 不是夜猫子
+## 20240127 - 巴西大自然中的异域之美
 
-###### 北鹰鸮
+###### 点嘴小巨嘴鸟，大西洋森林，巴西
 
-![](https://www.bing.com/th?id=OHR.HawkOwl_ZH-CN3401920167_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_UHD.jpg)
 
 ## 归档
 
