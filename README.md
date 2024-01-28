@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240127 - 巴西大自然中的异域之美
+## 20240128 - 从干涸的沙漠变成田园
 
-###### 点嘴小巨嘴鸟，大西洋森林，巴西
+###### 昆士兰州内陆海峡地区，澳大利亚
 
-![](https://www.bing.com/th?id=OHR.ToucanetEmpoleirado_ZH-CN8520861326_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_UHD.jpg)
 
 ## 归档
 
