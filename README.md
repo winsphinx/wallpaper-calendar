@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240128 - 从干涸的沙漠变成田园
+## 20240129 - 缓缓下降
 
-###### 昆士兰州内陆海峡地区，澳大利亚
+###### 戈林格瀑布，泰嫩高，萨尔茨堡，奥地利
 
-![](https://www.bing.com/th?id=OHR.ChannelOutback_ZH-CN0579687777_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GollingerFalls_ZH-CN1137680822_UHD.jpg)
 
 ## 归档
 
