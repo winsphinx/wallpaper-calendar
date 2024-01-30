@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240129 - 缓缓下降
+## 20240130 - 西班牙的小瑞士
 
-###### 戈林格瀑布，泰嫩高，萨尔茨堡，奥地利
+###### 艾纳, 塞古拉山脉, 阿尔瓦塞特, 西班牙
 
-![](https://www.bing.com/th?id=OHR.GollingerFalls_ZH-CN1137680822_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlbaceteSpain_ZH-CN1597281896_UHD.jpg)
 
 ## 归档
 
