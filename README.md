@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20240131 - 条纹造型
+## 20240201 - 发光的雪塔
 
-###### 布氏斑马妈妈和小马驹，里特弗雷自然保护区，南非
+###### 吕根岛的萨斯尼茨灯塔，德国
 
-![](https://www.bing.com/th?id=OHR.ZebraMother_ZH-CN1947314869_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HalbinselJasmund_ZH-CN2110869056_UHD.jpg)
 
 ## 归档
 
+| [202402](/202402/README.md)
 | [202401](/202401/README.md)
 | [202312](/202312/README.md)
 | [202311](/202311/README.md)
