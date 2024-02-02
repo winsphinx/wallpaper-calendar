@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240201 - 发光的雪塔
+## 20240202 - 菲尔会看到它的影子吗?
 
-###### 吕根岛的萨斯尼茨灯塔，德国
+###### 从洞穴中探出头的土拨鼠
 
-![](https://www.bing.com/th?id=OHR.HalbinselJasmund_ZH-CN2110869056_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlpineMarmot_ZH-CN3818584615_UHD.jpg)
 
 ## 归档
 
