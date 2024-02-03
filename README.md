@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240202 - 菲尔会看到它的影子吗?
+## 20240203 - 伪装的日子
 
-###### 从洞穴中探出头的土拨鼠
+###### 大运河与安康圣母大教堂，威尼斯，意大利
 
-![](https://www.bing.com/th?id=OHR.AlpineMarmot_ZH-CN3818584615_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_UHD.jpg)
 
 ## 归档
 
