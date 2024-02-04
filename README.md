@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240203 - 伪装的日子
+## 20240204 - 雄伟的天然穹顶
 
-###### 大运河与安康圣母大教堂，威尼斯，意大利
+###### 德弗塔什卡洞, Devetaki村庄，保加利亚
 
-![](https://www.bing.com/th?id=OHR.VeniceCarnival_ZH-CN4965898587_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_UHD.jpg)
 
 ## 归档
 
