@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240204 - 雄伟的天然穹顶
+## 20240205 - 唤醒沉睡的湖泊
 
-###### 德弗塔什卡洞, Devetaki村庄，保加利亚
+###### 从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚
 
-![](https://www.bing.com/th?id=OHR.DevetashkaCave_ZH-CN5186222166_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LakeBledSunrise_ZH-CN5580697031_UHD.jpg)
 
 ## 归档
 
