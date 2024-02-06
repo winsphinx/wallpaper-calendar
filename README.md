@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240205 - 唤醒沉睡的湖泊
+## 20240206 - 天然盆景
 
-###### 从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚
+###### 盆景岩，太浩湖，内华达州，美国
 
-![](https://www.bing.com/th?id=OHR.LakeBledSunrise_ZH-CN5580697031_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LakeTahoeRock_ZH-CN5770740919_UHD.jpg)
 
 ## 归档
 
