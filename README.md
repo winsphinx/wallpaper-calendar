@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240206 - 天然盆景
+## 20240207 - 海浪中的避风港
 
-###### 盆景岩，太浩湖，内华达州，美国
+###### 圣詹姆斯潮汐池，开普敦，南非
 
-![](https://www.bing.com/th?id=OHR.LakeTahoeRock_ZH-CN5770740919_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.StJamesPool_ZH-CN5930624359_UHD.jpg)
 
 ## 归档
 
