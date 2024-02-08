@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240207 - 海浪中的避风港
+## 20240208 - 沉睡的巨人
 
-###### 圣詹姆斯潮汐池，开普敦，南非
+###### 胡德山，俄勒冈州，美国
 
-![](https://www.bing.com/th?id=OHR.StJamesPool_ZH-CN5930624359_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MtHoodOregon_ZH-CN6068357532_UHD.jpg)
 
 ## 归档
 
