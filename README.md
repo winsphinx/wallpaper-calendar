@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240208 - 沉睡的巨人
+## 20240209 - 准备好庆祝了吗？
 
-###### 胡德山，俄勒冈州，美国
+###### 灯光秀点亮夜幕中的西安城墙，中国春节
 
-![](https://www.bing.com/th?id=OHR.MtHoodOregon_ZH-CN6068357532_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_UHD.jpg)
 
 ## 归档
 
