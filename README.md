@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240209 - 准备好庆祝了吗？
+## 20240210 - 福起新岁，万事顺意
 
-###### 灯光秀点亮夜幕中的西安城墙，中国春节
+###### 中国舞狮，大年初一
 
-![](https://www.bing.com/th?id=OHR.ChineseNewYearEve2024_ZH-CN7153418405_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_UHD.jpg)
 
 ## 归档
 
