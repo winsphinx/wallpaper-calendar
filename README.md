@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240210 - 福起新岁，万事顺意
+## 20240211 - 地球上的极乐世界
 
-###### 中国舞狮，大年初一
+###### 乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊
 
-![](https://www.bing.com/th?id=OHR.SpringFestival2024_ZH-CN7514007541_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_UHD.jpg)
 
 ## 归档
 
