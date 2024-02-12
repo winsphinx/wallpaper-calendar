@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240211 - 地球上的极乐世界
+## 20240212 - 甜蜜的火山家园
 
-###### 乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊
+###### 阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔
 
-![](https://www.bing.com/th?id=OHR.FolegandrosGreece_ZH-CN7803666477_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_UHD.jpg)
 
 ## 归档
 
