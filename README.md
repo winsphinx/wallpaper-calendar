@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240212 - 甜蜜的火山家园
+## 20240213 - 及时行乐！
 
-###### 阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔
+###### 马里尼的狂欢节彩珠，新奥尔良，美国
 
-![](https://www.bing.com/th?id=OHR.GiantTortoise_ZH-CN9220903689_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_UHD.jpg)
 
 ## 归档
 
