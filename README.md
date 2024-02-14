@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240213 - 及时行乐！
+## 20240214 - 更好地在一起
 
-###### 马里尼的狂欢节彩珠，新奥尔良，美国
+###### 丹顶鹤向伴侣鞠躬，北海道，日本
 
-![](https://www.bing.com/th?id=OHR.MarignyBeads_ZH-CN9346804869_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_UHD.jpg)
 
 ## 归档
 
