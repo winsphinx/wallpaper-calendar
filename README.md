@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240214 - 更好地在一起
+## 20240215 - 河马日快乐！
 
-###### 丹顶鹤向伴侣鞠躬，北海道，日本
+###### 河马妈妈和小河马，南卢安瓜国家公园，赞比亚
 
-![](https://www.bing.com/th?id=OHR.BowingCrane_ZH-CN0143761293_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_UHD.jpg)
 
 ## 归档
 
