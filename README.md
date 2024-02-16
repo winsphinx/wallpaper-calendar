@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240215 - 河马日快乐！
+## 20240216 - 让每只鸟都有价值
 
-###### 河马妈妈和小河马，南卢安瓜国家公园，赞比亚
+###### 一只雌性灰额主红雀栖息在德克萨斯州一株多刺仙人掌上，美国
 
-![](https://www.bing.com/th?id=OHR.HippopotamusDay_ZH-CN0518367336_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_UHD.jpg)
 
 ## 归档
 
