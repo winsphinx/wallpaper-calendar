@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240216 - 让每只鸟都有价值
+## 20240217 - 自然奇景
 
-###### 一只雌性灰额主红雀栖息在德克萨斯州一株多刺仙人掌上，美国
+###### 多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利
 
-![](https://www.bing.com/th?id=OHR.BackyardBird_ZH-CN0522695977_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_UHD.jpg)
 
 ## 归档
 
