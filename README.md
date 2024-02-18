@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240217 - 自然奇景
+## 20240218 - 来一口新鲜空气
 
-###### 多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利
+###### 抹香鲸浮出水面，多米尼克
 
-![](https://www.bing.com/th?id=OHR.LakeDolomites_ZH-CN2317113886_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_UHD.jpg)
 
 ## 归档
 
