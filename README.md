@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240218 - 来一口新鲜空气
+## 20240219 - 一年四季都有鲜艳的色彩!
 
-###### 抹香鲸浮出水面，多米尼克
+###### 鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙
 
-![](https://www.bing.com/th?id=OHR.DominicaWhales_ZH-CN1293650397_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_UHD.jpg)
 
 ## 归档
 
