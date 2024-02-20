@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240219 - 一年四季都有鲜艳的色彩!
+## 20240220 - 一个供市民休闲娱乐的公园
 
-###### 鸟瞰克鲁斯港色彩斑斓的房屋，特内里费岛，西班牙
+###### Kinder Scout，峰区国家公园，英国
 
-![](https://www.bing.com/th?id=OHR.CarnavalTenerife_ZH-CN1559136778_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PeakDistrictNP_ZH-CN1987784653_UHD.jpg)
 
 ## 归档
 
