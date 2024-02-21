@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240220 - 一个供市民休闲娱乐的公园
+## 20240221 - 一个天然的矛盾体
 
-###### Kinder Scout，峰区国家公园，英国
+###### 火瀑布，优胜美地国家公园，加利福尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.PeakDistrictNP_ZH-CN1987784653_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YosemiteFirefall_ZH-CN2236242565_UHD.jpg)
 
 ## 归档
 
