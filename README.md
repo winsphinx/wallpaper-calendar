@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240221 - 一个天然的矛盾体
+## 20240222 - 名副其实的“调色板盒子”
 
-###### 火瀑布，优胜美地国家公园，加利福尼亚州，美国
+###### 布莱顿海滩的彩虹小屋，墨尔本，维多利亚州，澳大利亚
 
-![](https://www.bing.com/th?id=OHR.YosemiteFirefall_ZH-CN2236242565_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BrightonBoxes_ZH-CN0947219018_UHD.jpg)
 
 ## 归档
 
