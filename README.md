@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240222 - 名副其实的“调色板盒子”
+## 20240223 - 老鹰起舞的地方
 
-###### 布莱顿海滩的彩虹小屋，墨尔本，维多利亚州，澳大利亚
+###### Haghartsin修道院，迪利扬国家公园，亚美尼亚
 
-![](https://www.bing.com/th?id=OHR.BrightonBoxes_ZH-CN0947219018_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HaghartsinMonastery_ZH-CN1705226096_UHD.jpg)
 
 ## 归档
 
