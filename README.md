@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240223 - 老鹰起舞的地方
+## 20240224 - 点亮一盏明灯，愿您万事顺意！
 
-###### Haghartsin修道院，迪利扬国家公园，亚美尼亚
+###### 锦里街上悬挂的红色中国灯笼，成都，中国四川省
 
-![](https://www.bing.com/th?id=OHR.HaghartsinMonastery_ZH-CN1705226096_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LaternFestival2024_ZH-CN8050981828_UHD.jpg)
 
 ## 归档
 
