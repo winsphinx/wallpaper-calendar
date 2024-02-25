@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240224 - 点亮一盏明灯，愿您万事顺意！
+## 20240225 - 薄雾笼罩
 
-###### 锦里街上悬挂的红色中国灯笼，成都，中国四川省
+###### 考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省
 
-![](https://www.bing.com/th?id=OHR.LaternFestival2024_ZH-CN8050981828_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MtPrevostDuncan_ZH-CN2333619635_UHD.jpg)
 
 ## 归档
 
