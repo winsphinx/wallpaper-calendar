@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240226 - 深不见底的鸿沟
+## 20240227 - 在冰天雪地里玩耍
 
-###### 大峡谷国家公园，亚利桑那州，美国
+###### 玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国
 
-![](https://www.bing.com/th?id=OHR.GrandCanyonWinter_ZH-CN2640803517_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PolarBearCubs_ZH-CN2913942257_UHD.jpg)
 
 ## 归档
 
