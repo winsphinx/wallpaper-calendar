@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240227 - 在冰天雪地里玩耍
+## 20240228 - 随波逐流
 
-###### 玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国
+###### 班堡城堡，诺森伯兰郡，英格兰
 
-![](https://www.bing.com/th?id=OHR.PolarBearCubs_ZH-CN2913942257_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BamburghCastleUK_ZH-CN3201531782_UHD.jpg)
 
 ## 归档
 
