@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240228 - 随波逐流
+## 20240229 - 多过一天
 
-###### 班堡城堡，诺森伯兰郡，英格兰
+###### 欧亚红松鼠
 
-![](https://www.bing.com/th?id=OHR.BamburghCastleUK_ZH-CN3201531782_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LeapingSquirrel_ZH-CN9112090462_UHD.jpg)
 
 ## 归档
 
