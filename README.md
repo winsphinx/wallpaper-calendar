@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240301 - 蝶舞翩跹
+## 20240302 - 西西里岛的风光
 
-###### 德国草地上的蝴蝶
+###### 莫迪卡，西西里岛，意大利
 
-![](https://www.bing.com/th?id=OHR.Schmetterlingswiese_ZH-CN3740804088_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ModicaItaly_ZH-CN3893147952_UHD.jpg)
 
 ## 归档
 
