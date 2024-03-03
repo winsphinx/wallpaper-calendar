@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240302 - 西西里岛的风光
+## 20240303 - 一位浑身斑点的杂技演员
 
-###### 莫迪卡，西西里岛，意大利
+###### 树上的豹子，克鲁格国家公园，南非
 
-![](https://www.bing.com/th?id=OHR.ModicaItaly_ZH-CN3893147952_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KrugerLeopard_ZH-CN4125884091_UHD.jpg)
 
 ## 归档
 
