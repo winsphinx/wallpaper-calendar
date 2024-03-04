@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240303 - 一位浑身斑点的杂技演员
+## 20240304 - 睡美人
 
-###### 树上的豹子，克鲁格国家公园，南非
+###### 从蒙特维多看到的阿雷纳尔火山,哥斯达黎加
 
-![](https://www.bing.com/th?id=OHR.KrugerLeopard_ZH-CN4125884091_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ArenalCostaRica_ZH-CN4466297855_UHD.jpg)
 
 ## 归档
 
