@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240305 - 陷入循环之中？
+## 20240306 - 尽情地嬉戏玩水吧！
 
-###### 曼谷的交通圈和高速公路，泰国
+###### Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国
 
-![](https://www.bing.com/th?id=OHR.BangkokCircle_ZH-CN4702412806_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_UHD.jpg)
 
 ## 归档
 
