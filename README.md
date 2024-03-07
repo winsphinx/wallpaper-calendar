@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240306 - 尽情地嬉戏玩水吧！
+## 20240307 - 攀登新的高峰
 
-###### Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国
+###### Roques de Benet，埃尔斯港自然公园，加泰罗尼亚，西班牙
 
-![](https://www.bing.com/th?id=OHR.WahclellaFalls_ZH-CN4932852217_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TarragonaSpain_ZH-CN5488361711_UHD.jpg)
 
 ## 归档
 
