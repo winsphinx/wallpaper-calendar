@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240308 - 世界新七大自然奇观之一
+## 20240309 - 因时间而改变
 
-###### 伊瓜苏大瀑布鸟瞰图，巴西
+###### 比斯第恶土，新墨西哥州，美国
 
-![](https://www.bing.com/th?id=OHR.IguazuFalls_ZH-CN4749837052_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BistiBlue_ZH-CN4991705833_UHD.jpg)
 
 ## 归档
 
