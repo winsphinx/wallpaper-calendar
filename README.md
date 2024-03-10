@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240309 - 因时间而改变
+## 20240310 - 是时候调整时间了
 
-###### 比斯第恶土，新墨西哥州，美国
+###### 圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州
 
-![](https://www.bing.com/th?id=OHR.BistiBlue_ZH-CN4991705833_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeaumontClock_ZH-CN5288086713_UHD.jpg)
 
 ## 归档
 
