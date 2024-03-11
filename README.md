@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240310 - 是时候调整时间了
+## 20240311 - 醉人的山峦
 
-###### 圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州
+###### Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利
 
-![](https://www.bing.com/th?id=OHR.BeaumontClock_ZH-CN5288086713_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ProseccoItaly_ZH-CN6802010344_UHD.jpg)
 
 ## 归档
 
