@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240311 - 醉人的山峦
+## 20240312 - 峡谷的守护者
 
-###### Prosecco山丘，科内利亚诺和瓦尔多比亚德内，威内托大区，意大利
+###### 布莱斯峡谷国家公园，犹他州，美国
 
-![](https://www.bing.com/th?id=OHR.ProseccoItaly_ZH-CN6802010344_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_UHD.jpg)
 
 ## 归档
 
