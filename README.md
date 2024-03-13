@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240312 - 峡谷的守护者
+## 20240313 - 鸟瞰
 
-###### 布莱斯峡谷国家公园，犹他州，美国
+###### 小红鹳飞越马加迪湖,肯尼亚
 
-![](https://www.bing.com/th?id=OHR.BryceSnow_ZH-CN7489999663_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_UHD.jpg)
 
 ## 归档
 
