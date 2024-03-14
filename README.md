@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240313 - 鸟瞰
+## 20240314 - 一个π
 
-###### 小红鹳飞越马加迪湖,肯尼亚
+###### Wat Phra Ngam，大城府历史公园，泰国
 
-![](https://www.bing.com/th?id=OHR.MagadiFlamingos_ZH-CN7888437841_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AyutthayaTree_ZH-CN8075870220_UHD.jpg)
 
 ## 归档
 
