@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240314 - 一个π
+## 20240315 - 一抹春色
 
-###### Wat Phra Ngam，大城府历史公园，泰国
+###### 安沙波利哥沙漠州立公园，美国加利福尼亚州
 
-![](https://www.bing.com/th?id=OHR.AyutthayaTree_ZH-CN8075870220_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AnzaBorregoBloom_ZH-CN8284458835_UHD.jpg)
 
 ## 归档
 
