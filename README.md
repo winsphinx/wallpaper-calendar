@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240315 - 一抹春色
+## 20240316 - 被竹子包围了
 
-###### 安沙波利哥沙漠州立公园，美国加利福尼亚州
+###### 正在吃竹子的大熊猫，中国成都
 
-![](https://www.bing.com/th?id=OHR.AnzaBorregoBloom_ZH-CN8284458835_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BambooPanda_ZH-CN8455481760_UHD.jpg)
 
 ## 归档
 
