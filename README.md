@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240316 - 被竹子包围了
+## 20240317 - 今天，让我们穿绿衣裳吧！
 
-###### 正在吃竹子的大熊猫，中国成都
+###### 圣菲尼安湾，凯里郡，爱尔兰
 
-![](https://www.bing.com/th?id=OHR.BambooPanda_ZH-CN8455481760_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.StFiniansBay_ZH-CN8655586052_UHD.jpg)
 
 ## 归档
 
