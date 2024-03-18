@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240317 - 今天，让我们穿绿衣裳吧！
+## 20240318 - 温柔的“沙丘巨人”
 
-###### 圣菲尼安湾，凯里郡，爱尔兰
+###### 大象岩，古城欧拉，沙特阿拉伯
 
-![](https://www.bing.com/th?id=OHR.StFiniansBay_ZH-CN8655586052_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_UHD.jpg)
 
 ## 归档
 
