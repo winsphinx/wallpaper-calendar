@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240318 - 温柔的“沙丘巨人”
+## 20240319 - 春日私语
 
-###### 大象岩，古城欧拉，沙特阿拉伯
+###### 盛开的扁桃树, 加利福尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.ElephantRock_ZH-CN9293300383_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_UHD.jpg)
 
 ## 归档
 
