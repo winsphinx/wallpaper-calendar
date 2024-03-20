@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240319 - 春日私语
+## 20240320 - 粉嫩的春日美景
 
-###### 盛开的扁桃树, 加利福尼亚州，美国
+###### 鸟瞰春日盛开的樱花，中国
 
-![](https://www.bing.com/th?id=OHR.AlmondBloom_ZH-CN9441550492_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Springequinox2024_ZH-CN5647214924_UHD.jpg)
 
 ## 归档
 
