@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240320 - 粉嫩的春日美景
+## 20240321 - 森林多美好呀！
 
-###### 鸟瞰春日盛开的樱花，中国
+###### 布恩迪国家公园，乌干达
 
-![](https://www.bing.com/th?id=OHR.Springequinox2024_ZH-CN5647214924_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BwindiNationalForest_ZH-CN0436137473_UHD.jpg)
 
 ## 归档
 
