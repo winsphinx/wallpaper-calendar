@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240321 - 森林多美好呀！
+## 20240322 - 我们在庆祝“水”？
 
-###### 布恩迪国家公园，乌干达
+###### 蓝泉，蒂怀霍步道，新西兰
 
-![](https://www.bing.com/th?id=OHR.BwindiNationalForest_ZH-CN0436137473_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WaikatoWater_ZH-CN0417438809_UHD.jpg)
 
 ## 归档
 
