@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240322 - 我们在庆祝“水”？
+## 20240323 - 造雾
 
-###### 蓝泉，蒂怀霍步道，新西兰
+###### 巴西亚马逊上空巨大的砧状云
 
-![](https://www.bing.com/th?id=OHR.WaikatoWater_ZH-CN0417438809_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AmazonClouds_ZH-CN0578911147_UHD.jpg)
 
 ## 归档
 
