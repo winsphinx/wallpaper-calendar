@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240323 - 造雾
+## 20240324 - 你能挪过去一点吗?
 
-###### 巴西亚马逊上空巨大的砧状云
+###### 樱花树枝上的灰胸绣眼鸟，韩国
 
-![](https://www.bing.com/th?id=OHR.AmazonClouds_ZH-CN0578911147_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WhiteEyes_ZH-CN1130380430_UHD.jpg)
 
 ## 归档
 
