@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240324 - 你能挪过去一点吗?
+## 20240325 - 春意盎然
 
-###### 樱花树枝上的灰胸绣眼鸟，韩国
+###### 弗雷泽河谷的郁金香田，阿伯兹福德，不列颠哥伦比亚省，加拿大
 
-![](https://www.bing.com/th?id=OHR.WhiteEyes_ZH-CN1130380430_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TulipAbbotsford_ZH-CN1401627293_UHD.jpg)
 
 ## 归档
 
