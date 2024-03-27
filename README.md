@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240326 - 潮汐探戈
+## 20240327 - 戏剧成为关注的焦点
 
-###### 海水从古老的珊瑚礁上倾泻而下，杭莱，越南
+###### 布宜诺斯艾利斯哥伦布剧院，阿根廷
 
-![](https://www.bing.com/th?id=OHR.HangRaiVietnam_ZH-CN1601428109_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_UHD.jpg)
 
 ## 归档
 
