@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240327 - 戏剧成为关注的焦点
+## 20240328 - 花香满径
 
-###### 布宜诺斯艾利斯哥伦布剧院，阿根廷
+###### 上海的樱花，中国
 
-![](https://www.bing.com/th?id=OHR.TeatroColon_ZH-CN5378730986_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ShanghaiBlossoms_ZH-CN5594677517_UHD.jpg)
 
 ## 归档
 
