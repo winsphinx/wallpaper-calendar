@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240329 - 潮涨潮落，灯火通明
+## 20240330 - 来自“颠倒世界”的问候
 
-###### 日落时的南斯塔克灯塔，霍利希德，威尔士，英国
+###### 睡在号角树上的褐喉树懒，哥斯达黎加
 
-![](https://www.bing.com/th?id=OHR.SouthStackLight_ZH-CN5932471774_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SleepySloth_ZH-CN6084460583_UHD.jpg)
 
 ## 归档
 
