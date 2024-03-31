@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240330 - 来自“颠倒世界”的问候
+## 20240331 - 纯洁与优雅的象征
 
-###### 睡在号角树上的褐喉树懒，哥斯达黎加
+###### 潘塔纳尔湿地的大白鹭，巴西
 
-![](https://www.bing.com/th?id=OHR.SleepySloth_ZH-CN6084460583_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ArdeAlba_ZH-CN6807697569_UHD.jpg)
 
 ## 归档
 
