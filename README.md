@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20240331 - 纯洁与优雅的象征
+## 20240401 - 岌岌可危的冰川
 
-###### 潘塔纳尔湿地的大白鹭，巴西
+###### 勃朗峰上的冰海，夏慕尼，法国
 
-![](https://www.bing.com/th?id=OHR.ArdeAlba_ZH-CN6807697569_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MontBlancGlacier_ZH-CN2918240023_UHD.jpg)
 
 ## 归档
 
+| [202404](/202404/README.md)
 | [202403](/202403/README.md)
 | [202402](/202402/README.md)
 | [202401](/202401/README.md)
