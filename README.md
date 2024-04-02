@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240401 - 岌岌可危的冰川
+## 20240402 - 一缕阳光下的林地
 
-###### 勃朗峰上的冰海，夏慕尼，法国
+###### 日德兰半岛的山毛榉树和野生海葵 ，丹麦
 
-![](https://www.bing.com/th?id=OHR.MontBlancGlacier_ZH-CN2918240023_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JutlandSpring_ZH-CN7785758539_UHD.jpg)
 
 ## 归档
 
