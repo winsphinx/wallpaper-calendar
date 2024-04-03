@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240402 - 一缕阳光下的林地
+## 20240403 - 希望彩虹留在这里
 
-###### 日德兰半岛的山毛榉树和野生海葵 ，丹麦
+###### At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦
 
-![](https://www.bing.com/th?id=OHR.JutlandSpring_ZH-CN7785758539_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KyrgyzstanRainbow_ZH-CN8027219590_UHD.jpg)
 
 ## 归档
 
