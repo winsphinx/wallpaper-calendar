@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240403 - 希望彩虹留在这里
+## 20240404 - 沼泽地上的漫游者
 
-###### At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦
+###### 红驴羚群穿越奥卡万戈三角洲的沼泽平原，博茨瓦纳
 
-![](https://www.bing.com/th?id=OHR.KyrgyzstanRainbow_ZH-CN8027219590_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AntelopeBotswana_ZH-CN8253323519_UHD.jpg)
 
 ## 归档
 
