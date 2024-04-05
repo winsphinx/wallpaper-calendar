@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240404 - 沼泽地上的漫游者
+## 20240405 - 潜入碧海
 
-###### 红驴羚群穿越奥卡万戈三角洲的沼泽平原，博茨瓦纳
+###### 从国际空间站拍摄的巴哈马群岛
 
-![](https://www.bing.com/th?id=OHR.AntelopeBotswana_ZH-CN8253323519_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BahamasSpace_ZH-CN8053657656_UHD.jpg)
 
 ## 归档
 
