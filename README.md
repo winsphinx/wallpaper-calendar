@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240405 - 潜入碧海
+## 20240406 - 皇家景观
 
-###### 从国际空间站拍摄的巴哈马群岛
+###### 姬路城，姫路，兵库县，日本
 
-![](https://www.bing.com/th?id=OHR.BahamasSpace_ZH-CN8053657656_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_UHD.jpg)
 
 ## 归档
 
