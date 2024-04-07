@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240406 - 皇家景观
+## 20240407 - 看，我是树枝整理师！
 
-###### 姬路城，姫路，兵库县，日本
+###### 奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国
 
-![](https://www.bing.com/th?id=OHR.JapanHimeji_ZH-CN8344654166_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeaverDenali_ZH-CN8736013851_UHD.jpg)
 
 ## 归档
 
