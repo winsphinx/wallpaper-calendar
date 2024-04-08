@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240407 - 看，我是树枝整理师！
+## 20240408 - 闻闻春天的气息
 
-###### 奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国
+###### 欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国
 
-![](https://www.bing.com/th?id=OHR.BeaverDenali_ZH-CN8736013851_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HedgehogMeadow_ZH-CN8845586473_UHD.jpg)
 
 ## 归档
 
