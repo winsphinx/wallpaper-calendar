@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240409 - 踮起脚尖，穿过郁金香
+## 20240410 - 猫头鹰在你身边！
 
-###### 郁金香田，斯卡吉特山谷，华盛顿州，美国
+###### 洞穴附近的穴小鸮雏鸟，怀俄明州，美国
 
-![](https://www.bing.com/th?id=OHR.SkagitValleyTulips_ZH-CN9034120306_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OwlSiblings_ZH-CN9441687518_UHD.jpg)
 
 ## 归档
 
