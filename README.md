@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240410 - 猫头鹰在你身边！
+## 20240411 - 把梦想变成现实！
 
-###### 洞穴附近的穴小鸮雏鸟，怀俄明州，美国
+###### 丘伦梅鲁瀑布鸟瞰图，委内瑞拉
 
-![](https://www.bing.com/th?id=OHR.OwlSiblings_ZH-CN9441687518_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DragonWaterfall_ZH-CN9580105565_UHD.jpg)
 
 ## 归档
 
