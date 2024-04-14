@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240413 - 花开正满枝
+## 20240414 - 岩石保龄球
 
-###### 春天的苹果树，德国
+###### 保龄球海滩的日落，门多西诺县，加利福尼亚，美国
 
-![](https://www.bing.com/th?id=OHR.SpringApple_ZH-CN0101917345_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BowlingBallCali_ZH-CN0434558966_UHD.jpg)
 
 ## 归档
 
