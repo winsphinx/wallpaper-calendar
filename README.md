@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240414 - 岩石保龄球
+## 20240415 - 介于文艺复兴与独创性之间
 
-###### 保龄球海滩的日落，门多西诺县，加利福尼亚，美国
+###### 香波城堡，中央-卢瓦尔河谷大区，法国
 
-![](https://www.bing.com/th?id=OHR.BowlingBallCali_ZH-CN0434558966_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChambordCastle_ZH-CN0930093515_UHD.jpg)
 
 ## 归档
 
