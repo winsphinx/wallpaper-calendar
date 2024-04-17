@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240416 - 灯光，相机，纽约！
+## 20240417 - 我是不是睡得太久了？
 
-###### 暮色中的曼哈顿下城联合广场，纽约，美国
+###### 春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.UnionSquareNYC_ZH-CN1533018653_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpringCub_ZH-CN1643833378_UHD.jpg)
 
 ## 归档
 
