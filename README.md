@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240418 - 名誉之墙
+## 20240419 - 历史的轮回
 
-###### 中世纪城墙，阿维拉，西班牙
+###### 布罗德加环，奥克尼岛，苏格兰
 
-![](https://www.bing.com/th?id=OHR.AvilaSpain_ZH-CN1792280503_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OrkneyStones_ZH-CN2287350110_UHD.jpg)
 
 ## 归档
 
