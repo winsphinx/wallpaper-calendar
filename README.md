@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240420 - 保存，保护，享受！
+## 20240421 - 未选择的路
 
-###### 日出时分的大棱镜泉，美国怀俄明州黄石国家公园
+###### Cades Cove ，大雾山国家公园，田纳西州，美国
 
-![](https://www.bing.com/th?id=OHR.YellowstoneGeyser_ZH-CN3441008468_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_UHD.jpg)
 
 ## 归档
 
