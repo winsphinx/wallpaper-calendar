@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240421 - 未选择的路
+## 20240422 - 我们在庆祝什么?
 
-###### Cades Cove ，大雾山国家公园，田纳西州，美国
+###### 绿海龟，圣地亚哥，加利福尼亚，美国
 
-![](https://www.bing.com/th?id=OHR.CadesCove_ZH-CN3950297181_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EarthDayTurtle_ZH-CN4642042701_UHD.jpg)
 
 ## 归档
 
