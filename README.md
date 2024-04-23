@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240422 - 我们在庆祝什么?
+## 20240423 - 预订已满！
 
-###### 绿海龟，圣地亚哥，加利福尼亚，美国
+###### 三一学院图书馆，都柏林，爱尔兰
 
-![](https://www.bing.com/th?id=OHR.EarthDayTurtle_ZH-CN4642042701_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TrinityDublin_ZH-CN7902993255_UHD.jpg)
 
 ## 归档
 
