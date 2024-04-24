@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240423 - 预订已满！
+## 20240424 - 嘿，今天长势如何？
 
-###### 三一学院图书馆，都柏林，爱尔兰
+###### 盛开的白延龄草，安大略省，加拿大
 
-![](https://www.bing.com/th?id=OHR.TrinityDublin_ZH-CN7902993255_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_UHD.jpg)
 
 ## 归档
 
