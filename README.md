@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240424 - 嘿，今天长势如何？
+## 20240425 - 很高兴在这里见到你们！
 
-###### 盛开的白延龄草，安大略省，加拿大
+###### 南极洲冰山上的阿德利企鹅
 
-![](https://www.bing.com/th?id=OHR.TrilliumOntario_ZH-CN8327395975_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PenguinDirections_ZH-CN8498684753_UHD.jpg)
 
 ## 归档
 
