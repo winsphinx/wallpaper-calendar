@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240425 - 很高兴在这里见到你们！
+## 20240426 - 这棵树是个快乐的家伙！
 
-###### 南极洲冰山上的阿德利企鹅
+###### 卡拉洛奇树，又名生命之树，卡拉洛奇海滩，奥林匹克国家公园，华盛顿州，美国
 
-![](https://www.bing.com/th?id=OHR.PenguinDirections_ZH-CN8498684753_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KalalochTree_ZH-CN9427839259_UHD.jpg)
 
 ## 归档
 
