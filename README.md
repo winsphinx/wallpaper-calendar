@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240427 - 观鸟的时间到了！
+## 20240428 - 去公园走走吧！
 
-###### 澳大利亚花园里的白种安氏蜂鸟，加州大学圣克鲁兹分校植物园，加利福尼亚州，美国
+###### 瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国
 
-![](https://www.bing.com/th?id=OHR.LeucisticHummingbird_ZH-CN2921653789_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_UHD.jpg)
 
 ## 归档
 
