@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240428 - 去公园走走吧！
+## 20240429 - 被保存得很好的古建筑
 
-###### 瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国
+###### 福建土楼，福建省历史文化遗产建筑，中国
 
-![](https://www.bing.com/th?id=OHR.GuadalupeTexas_ZH-CN3911419948_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_UHD.jpg)
 
 ## 归档
 
