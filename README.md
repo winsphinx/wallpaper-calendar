@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240429 - 被保存得很好的古建筑
+## 20240430 - “草原大喵”的完美速度
 
-###### 福建土楼，福建省历史文化遗产建筑，中国
+###### 清晨雨中的猎豹，恩杜图平原，恩戈罗恩戈罗保护区，坦桑尼亚
 
-![](https://www.bing.com/th?id=OHR.TulouFujian_ZH-CN4287018074_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CheetahRain_ZH-CN6722375507_UHD.jpg)
 
 ## 归档
 
