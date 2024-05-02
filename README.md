@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240501 - 夏威夷的花环节
+## 20240502 - “月球一日游”
 
-###### 夏威夷花环
+###### 蓝龙熔岩流，月球陨石坑国家纪念碑和保护区，爱达荷州，美国
 
-![](https://www.bing.com/th?id=OHR.HawaiianLei_ZH-CN7857272499_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CratersOfTheMoon_ZH-CN8971565042_UHD.jpg)
 
 ## 归档
 
