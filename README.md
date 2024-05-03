@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240502 - “月球一日游”
+## 20240503 - 最热的地方也有凉爽之处
 
-###### 蓝龙熔岩流，月球陨石坑国家纪念碑和保护区，爱达荷州，美国
+###### 春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州
 
-![](https://www.bing.com/th?id=OHR.CratersOfTheMoon_ZH-CN8971565042_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SonoranSpring_ZH-CN9246678734_UHD.jpg)
 
 ## 归档
 
