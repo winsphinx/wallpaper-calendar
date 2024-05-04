@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240503 - 最热的地方也有凉爽之处
+## 20240504 - 愿原力与你同在！
 
-###### 春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州
+###### 斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰
 
-![](https://www.bing.com/th?id=OHR.SonoranSpring_ZH-CN9246678734_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_UHD.jpg)
 
 ## 归档
 
