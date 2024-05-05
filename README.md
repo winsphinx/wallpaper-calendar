@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240504 - 愿原力与你同在！
+## 20240505 - 为墨西哥干杯!
 
-###### 斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰
+###### 圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥
 
-![](https://www.bing.com/th?id=OHR.JediMonastery_ZH-CN0091557941_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SanMiguelAllende_ZH-CN1840507091_UHD.jpg)
 
 ## 归档
 
