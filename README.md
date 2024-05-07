@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240506 - 峰区一瞥
+## 20240507 - 水影里的小黄鸭
 
-###### 罗奇斯山脊，英格兰峰区
+###### 一只小鸭子在水草地上游泳，萨福克郡，英国
 
-![](https://www.bing.com/th?id=OHR.TheRoachesPeakDistrict_ZH-CN2657532467_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LittleDuckling_ZH-CN2922471258_UHD.jpg)
 
 ## 归档
 
