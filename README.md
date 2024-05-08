@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240507 - 水影里的小黄鸭
+## 20240508 - 海港景色
 
-###### 一只小鸭子在水草地上游泳，萨福克郡，英国
+###### 伊夫堡，马赛，法国
 
-![](https://www.bing.com/th?id=OHR.LittleDuckling_ZH-CN2922471258_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PortMarseille_ZH-CN3194394496_UHD.jpg)
 
 ## 归档
 
