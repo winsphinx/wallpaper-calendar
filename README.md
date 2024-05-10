@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240509 - 恣意绽放的郁金香
+## 20240510 - 岛屿在召唤！
 
-###### 埃米尔甘公园的郁金香，伊斯坦布尔，土耳其
+###### 米苏尔岛，拉贾安帕群岛，印度尼西亚
 
-![](https://www.bing.com/th?id=OHR.EmirganPark_ZH-CN3394557999_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MisoolRajaAmpat_ZH-CN3557473032_UHD.jpg)
 
 ## 归档
 
