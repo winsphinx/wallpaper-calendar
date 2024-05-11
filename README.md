@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240510 - 岛屿在召唤！
+## 20240511 - 小蓝鸟一路顺风
 
-###### 米苏尔岛，拉贾安帕群岛，印度尼西亚
+###### 树枝上栖息的靛蓝彩鹀，德克萨斯州
 
-![](https://www.bing.com/th?id=OHR.MisoolRajaAmpat_ZH-CN3557473032_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_UHD.jpg)
 
 ## 归档
 
