@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240511 - 小蓝鸟一路顺风
+## 20240512 - 放牧和饲养
 
-###### 树枝上栖息的靛蓝彩鹀，德克萨斯州
+###### 潘帕省草原上的雌性原驼和它新出生的宝宝，阿根廷
 
-![](https://www.bing.com/th?id=OHR.TexasIndigoBunting_ZH-CN3699392300_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GuanacoMother_ZH-CN3856540256_UHD.jpg)
 
 ## 归档
 
