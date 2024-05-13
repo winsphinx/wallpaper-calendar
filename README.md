@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240512 - 放牧和饲养
+## 20240513 - 鱼眼视角
 
-###### 潘帕省草原上的雌性原驼和它新出生的宝宝，阿根廷
+###### 鱼河大峡谷，纳米比亚
 
-![](https://www.bing.com/th?id=OHR.GuanacoMother_ZH-CN3856540256_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_UHD.jpg)
 
 ## 归档
 
