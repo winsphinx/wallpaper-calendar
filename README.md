@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240513 - 鱼眼视角
+## 20240514 - “深渊”探险
 
-###### 鱼河大峡谷，纳米比亚
+###### 通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州
 
-![](https://www.bing.com/th?id=OHR.NamibiaCanyon_ZH-CN3973338246_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg)
 
 ## 归档
 
