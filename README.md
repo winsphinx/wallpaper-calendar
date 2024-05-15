@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240514 - “深渊”探险
+## 20240515 - 迷失在蓝色的美丽国度
 
-###### 通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州
+###### 焦特布尔蓝色之城，印度
 
-![](https://www.bing.com/th?id=OHR.CarlsbadNP_ZH-CN4136753542_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_UHD.jpg)
 
 ## 归档
 
