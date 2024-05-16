@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240515 - 迷失在蓝色的美丽国度
+## 20240516 - 这片水域里有很多故事！
 
-###### 焦特布尔蓝色之城，印度
+###### 维戈的兰德大桥，西班牙
 
-![](https://www.bing.com/th?id=OHR.BlueCityIndia_ZH-CN4275229255_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_UHD.jpg)
 
 ## 归档
 
