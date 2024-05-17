@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240516 - 这片水域里有很多故事！
+## 20240517 - 今天不是无关紧要的一天
 
-###### 维戈的兰德大桥，西班牙
+###### 塔兰吉雷国家公园的非洲象家族，坦桑尼亚
 
-![](https://www.bing.com/th?id=OHR.ReconquistaVigo_ZH-CN4619580424_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_UHD.jpg)
 
 ## 归档
 
