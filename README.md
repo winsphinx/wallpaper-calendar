@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240517 - 今天不是无关紧要的一天
+## 20240518 - 流浪者未必都是迷路人
 
-###### 塔兰吉雷国家公园的非洲象家族，坦桑尼亚
+###### 破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大
 
-![](https://www.bing.com/th?id=OHR.TarangireElephants_ZH-CN5447385839_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_UHD.jpg)
 
 ## 归档
 
