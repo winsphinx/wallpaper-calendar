@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240518 - 流浪者未必都是迷路人
+## 20240519 - 历史与大海的交汇处
 
-###### 破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大
+###### 韦尔纳扎村，五渔村，利古里亚，意大利
 
-![](https://www.bing.com/th?id=OHR.PacificRimNationalPark_ZH-CN5809123424_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VernazzaItaly_ZH-CN6245826569_UHD.jpg)
 
 ## 归档
 
