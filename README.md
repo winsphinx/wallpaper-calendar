@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240519 - 历史与大海的交汇处
+## 20240520 - 我简直不敢相信！
 
-###### 韦尔纳扎村，五渔村，利古里亚，意大利
+###### 蜜蜂照料蜂巢
 
-![](https://www.bing.com/th?id=OHR.VernazzaItaly_ZH-CN6245826569_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HoneycombBee_ZH-CN6572760814_UHD.jpg)
 
 ## 归档
 
