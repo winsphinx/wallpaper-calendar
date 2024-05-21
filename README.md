@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240520 - 我简直不敢相信！
+## 20240521 - 充满茶香的一天
 
-###### 蜜蜂照料蜂巢
+###### 卡梅隆高地茶园，马拉西亚
 
-![](https://www.bing.com/th?id=OHR.HoneycombBee_ZH-CN6572760814_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_UHD.jpg)
 
 ## 归档
 
