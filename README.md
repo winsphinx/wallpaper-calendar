@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240521 - 充满茶香的一天
+## 20240522 - 深入了解生物多样性
 
-###### 卡梅隆高地茶园，马拉西亚
+###### 塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚
 
-![](https://www.bing.com/th?id=OHR.MalaysiaTea_ZH-CN6758939415_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_UHD.jpg)
 
 ## 归档
 
