@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240522 - 深入了解生物多样性
+## 20240523 - 寻找一个“庇护所”
 
-###### 塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚
+###### 印度星龟，斯里兰卡
 
-![](https://www.bing.com/th?id=OHR.SnowGumTasmania_ZH-CN6975160884_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IndianStarTortoise_ZH-CN7177478610_UHD.jpg)
 
 ## 归档
 
