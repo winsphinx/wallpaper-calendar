@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240523 - 寻找一个“庇护所”
+## 20240524 - 一路到顶峰
 
-###### 印度星龟，斯里兰卡
+###### 阿尼斯克洛峡谷，奥德萨和佩尔迪多山国家公园，韦斯卡，西班牙
 
-![](https://www.bing.com/th?id=OHR.IndianStarTortoise_ZH-CN7177478610_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OrdesaNationalPark_ZH-CN8545620273_UHD.jpg)
 
 ## 归档
 
