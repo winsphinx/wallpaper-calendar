@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240524 - 一路到顶峰
+## 20240525 - 沙丘守护者
 
-###### 阿尼斯克洛峡谷，奥德萨和佩尔迪多山国家公园，韦斯卡，西班牙
+###### 阿伊特本哈杜，摩洛哥
 
-![](https://www.bing.com/th?id=OHR.OrdesaNationalPark_ZH-CN8545620273_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MoroccoBenhaddou_ZH-CN8742267428_UHD.jpg)
 
 ## 归档
 
