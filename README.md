@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240525 - 沙丘守护者
+## 20240526 - 野性与自由
 
-###### 阿伊特本哈杜，摩洛哥
+###### 香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国
 
-![](https://www.bing.com/th?id=OHR.MoroccoBenhaddou_ZH-CN8742267428_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_UHD.jpg)
 
 ## 归档
 
