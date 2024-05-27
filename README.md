@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240526 - 野性与自由
+## 20240527 - 我们去乘船吧！
 
-###### 香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国
+###### 塞斯特里莱万特的沉默湾，利古里亚大区，意大利
 
-![](https://www.bing.com/th?id=OHR.MethowWildflowers_ZH-CN8926661958_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_UHD.jpg)
 
 ## 归档
 
