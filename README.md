@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240527 - 我们去乘船吧！
+## 20240528 - 屹立于世界之巅
 
-###### 塞斯特里莱万特的沉默湾，利古里亚大区，意大利
+###### 罗萨诺修道院，迈泰奥拉，色萨利 ，希腊
 
-![](https://www.bing.com/th?id=OHR.SestriLevante_ZH-CN9286254645_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MeteoraMonastery_ZH-CN9551991708_UHD.jpg)
 
 ## 归档
 
