@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240528 - 屹立于世界之巅
+## 20240529 - 水獭在看什么？
 
-###### 罗萨诺修道院，迈泰奥拉，色萨利 ，希腊
+###### 青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛
 
-![](https://www.bing.com/th?id=OHR.MeteoraMonastery_ZH-CN9551991708_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MullOtter_ZH-CN9691813587_UHD.jpg)
 
 ## 归档
 
