@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20240531 - 绿意盎然的宜人之地
+## 20240601 - 带你游花园
 
-###### 冈纳塞德，斯韦尔代尔，约克郡谷地国家公园，英格兰
+###### 帝王棕榈树，里约热内卢植物园，巴西
 
-![](https://www.bing.com/th?id=OHR.YorkshireDalesNP_ZH-CN0775378262_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_UHD.jpg)
 
 ## 归档
 
+| [202406](/202406/README.md)
 | [202405](/202405/README.md)
 | [202404](/202404/README.md)
 | [202403](/202403/README.md)
