@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240601 - 带你游花园
+## 20240602 - 黑夜中的一盏明灯
 
-###### 帝王棕榈树，里约热内卢植物园，巴西
+###### 普卢马纳克的灯塔，阿摩尔滨海省，法国
 
-![](https://www.bing.com/th?id=OHR.CancaoDoExilio_ZH-CN1012675104_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MenRuz_ZH-CN2021725181_UHD.jpg)
 
 ## 归档
 
