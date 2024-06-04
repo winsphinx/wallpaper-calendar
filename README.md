@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240603 - 一起骑车去兜风吧
+## 20240604 - 物以类聚
 
-###### 哥本哈根的自行车，丹麦
+###### 黑胸蜂虎，巴迪亚国家公园，尼泊尔
 
-![](https://www.bing.com/th?id=OHR.CopenhagenBicycles_ZH-CN3047958346_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChestnutBeeEater_ZH-CN3514753872_UHD.jpg)
 
 ## 归档
 
