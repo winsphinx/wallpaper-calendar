@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240604 - 物以类聚
+## 20240605 - 世界环境日快乐！
 
-###### 黑胸蜂虎，巴迪亚国家公园，尼泊尔
+###### 马达加斯加的马苏阿拉国家公园
 
-![](https://www.bing.com/th?id=OHR.ChestnutBeeEater_ZH-CN3514753872_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MadagascarRiver_ZH-CN3842472014_UHD.jpg)
 
 ## 归档
 
