@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240606 - 有趣的野生动物!
+## 20240607 - 希望的浪潮
 
-###### 蓬德高鸟类公园的大红鹳，卡玛格，法国
+###### 座头鲸家族，荷兰港，阿拉斯加州
 
-![](https://www.bing.com/th?id=OHR.CamargueFlamingos_ZH-CN4176922228_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HumpbackFamily_ZH-CN4336100531_UHD.jpg)
 
 ## 归档
 
