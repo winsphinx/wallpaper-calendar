@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240607 - 希望的浪潮
+## 20240608 - 河流的交汇
 
-###### 座头鲸家族，荷兰港，阿拉斯加州
+###### 复活节溪和基利克河的交汇处，北极之门国家公园，阿拉斯加州，美国
 
-![](https://www.bing.com/th?id=OHR.HumpbackFamily_ZH-CN4336100531_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KillikRiverAlaska_ZH-CN5736211272_UHD.jpg)
 
 ## 归档
 
