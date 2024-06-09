@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240608 - 河流的交汇
+## 20240609 - 令人窒息的寂静
 
-###### 复活节溪和基利克河的交汇处，北极之门国家公园，阿拉斯加州，美国
+###### 巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙
 
-![](https://www.bing.com/th?id=OHR.KillikRiverAlaska_ZH-CN5736211272_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BardenasBiosphere_ZH-CN6198033700_UHD.jpg)
 
 ## 归档
 
