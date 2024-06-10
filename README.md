@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240609 - 令人窒息的寂静
+## 20240610 - 比赛将在这里开始！
 
-###### 巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙
+###### 龙舟池日出，集美区，厦门，中国
 
-![](https://www.bing.com/th?id=OHR.BardenasBiosphere_ZH-CN6198033700_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_UHD.jpg)
 
 ## 归档
 
