@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240610 - 比赛将在这里开始！
+## 20240611 - 这些羚羊是真正的珍宝
 
-###### 龙舟池日出，集美区，厦门，中国
+###### 热带稀树草原上的南非剑羚，博茨瓦纳大草原
 
-![](https://www.bing.com/th?id=OHR.DragonBoatFestival2024_ZH-CN6619827853_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_UHD.jpg)
 
 ## 归档
 
