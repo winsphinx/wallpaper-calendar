@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240611 - 这些羚羊是真正的珍宝
+## 20240612 - 星光盛宴
 
-###### 热带稀树草原上的南非剑羚，博茨瓦纳大草原
+###### 大弯国家公园上空的银河，得克萨斯州，美国
 
-![](https://www.bing.com/th?id=OHR.GemsbokBotswana_ZH-CN7507199339_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_UHD.jpg)
 
 ## 归档
 
