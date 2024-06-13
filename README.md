@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240612 - 星光盛宴
+## 20240613 - 瓷砖的故事
 
-###### 大弯国家公园上空的银河，得克萨斯州，美国
+###### 雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒
 
-![](https://www.bing.com/th?id=OHR.BigBendMilkyWay_ZH-CN7709015605_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7850329702_UHD.jpg)
 
 ## 归档
 
