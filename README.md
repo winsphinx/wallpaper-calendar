@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240613 - 瓷砖的故事
+## 20240614 - 孤独，但不寂寞
 
-###### 雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒
+###### 佩姬湾灯塔，新斯科舍省，加拿大
 
-![](https://www.bing.com/th?id=OHR.RegistanUzbekistan_ZH-CN7850329702_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_UHD.jpg)
 
 ## 归档
 
