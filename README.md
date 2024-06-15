@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240614 - 孤独，但不寂寞
+## 20240615 - 有志者事竟成
 
-###### 佩姬湾灯塔，新斯科舍省，加拿大
+###### 在纳扎雷冲浪的冲浪者，葡萄牙
 
-![](https://www.bing.com/th?id=OHR.PeggysCove_ZH-CN4221190894_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_UHD.jpg)
 
 ## 归档
 
