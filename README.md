@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240615 - 有志者事竟成
+## 20240616 - 这位父亲棋高一着
 
-###### 在纳扎雷冲浪的冲浪者，葡萄牙
+###### 赤狐父子，华盛顿，美国
 
-![](https://www.bing.com/th?id=OHR.NazareWave_ZH-CN4575182192_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_UHD.jpg)
 
 ## 归档
 
