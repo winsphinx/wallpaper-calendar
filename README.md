@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240616 - 这位父亲棋高一着
+## 20240617 - 传播花粉
 
-###### 赤狐父子，华盛顿，美国
+###### 绿顶辉蜂鸟与巨型蓟，穆埃尔特山，哥斯达黎加
 
-![](https://www.bing.com/th?id=OHR.RedFoxDad_ZH-CN4894022141_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HummingThistle_ZH-CN5057539905_UHD.jpg)
 
 ## 归档
 
