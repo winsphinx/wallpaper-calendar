@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240617 - 传播花粉
+## 20240618 - 鲁冰花盛放的夏季
 
-###### 绿顶辉蜂鸟与巨型蓟，穆埃尔特山，哥斯达黎加
+###### 日出时的羽扇豆田和教堂，斯奈山半岛，冰岛
 
-![](https://www.bing.com/th?id=OHR.HummingThistle_ZH-CN5057539905_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LupinIceland_ZH-CN5329147708_UHD.jpg)
 
 ## 归档
 
