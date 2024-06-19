@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240618 - 鲁冰花盛放的夏季
+## 20240619 - 一座历史古迹
 
-###### 日出时的羽扇豆田和教堂，斯奈山半岛，冰岛
+###### 库克斯港的水塔，德国
 
-![](https://www.bing.com/th?id=OHR.LupinIceland_ZH-CN5329147708_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CuxhavenTower_ZH-CN5580118944_UHD.jpg)
 
 ## 归档
 
