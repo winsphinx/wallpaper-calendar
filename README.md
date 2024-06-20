@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240619 - 一座历史古迹
+## 20240620 - 夏天的脚步近了
 
-###### 库克斯港的水塔，德国
+###### 科基诺，古代巨石观测站，北马其顿
 
-![](https://www.bing.com/th?id=OHR.CuxhavenTower_ZH-CN5580118944_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_UHD.jpg)
 
 ## 归档
 
