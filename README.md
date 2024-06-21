@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240620 - 夏天的脚步近了
+## 20240621 - 清凉的湖水
 
-###### 科基诺，古代巨石观测站，北马其顿
+###### 蓝色水面上的渔船航拍图，郴州市，湖南省，中国
 
-![](https://www.bing.com/th?id=OHR.KokinoMacedonia_ZH-CN6029529601_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SummerSolstice2024_ZH-CN6141918663_UHD.jpg)
 
 ## 归档
 
