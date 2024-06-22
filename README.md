@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240621 - 清凉的湖水
+## 20240622 - 迷失在迷雾之中
 
-###### 蓝色水面上的渔船航拍图，郴州市，湖南省，中国
+###### 亚马逊雨林，巴西
 
-![](https://www.bing.com/th?id=OHR.SummerSolstice2024_ZH-CN6141918663_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BrazilRainforest_ZH-CN6432366530_UHD.jpg)
 
 ## 归档
 
