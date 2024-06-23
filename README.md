@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240622 - 迷失在迷雾之中
+## 20240623 - 漆黑的夜晚，城市的灯光
 
-###### 亚马逊雨林，巴西
+###### 达卡环形交叉路口的鸟瞰图，孟加拉国
 
-![](https://www.bing.com/th?id=OHR.BrazilRainforest_ZH-CN6432366530_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_UHD.jpg)
 
 ## 归档
 
