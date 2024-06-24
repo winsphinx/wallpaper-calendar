@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240623 - 漆黑的夜晚，城市的灯光
+## 20240624 - 让人心旷神怡的美景
 
-###### 达卡环形交叉路口的鸟瞰图，孟加拉国
+###### 克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚
 
-![](https://www.bing.com/th?id=OHR.DhakaBangladesh_ZH-CN6777866162_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_UHD.jpg)
 
 ## 归档
 
