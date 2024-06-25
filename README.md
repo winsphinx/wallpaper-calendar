@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240624 - 让人心旷神怡的美景
+## 20240625 - 拍出炫酷照片的好地方
 
-###### 克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚
+###### 火浪岩层，火焰谷州立公园，内华达州，美国
 
-![](https://www.bing.com/th?id=OHR.FloresIsland_ZH-CN6930246149_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FireWave_ZH-CN7110736577_UHD.jpg)
 
 ## 归档
 
