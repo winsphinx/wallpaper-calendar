@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240626 - 美丽的条纹小鱼！
+## 20240627 - “甜蜜的”穹顶
 
-###### 考氏鳍竺鲷与海葵，蓝碧海峡，北苏拉威西，印度尼西亚
+###### 黄昏时分的圣母百花大教堂，佛罗伦萨，意大利
 
-![](https://www.bing.com/th?id=OHR.CardinalfishAnemone_ZH-CN7249037417_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FlorenceDuomo_ZH-CN7379412586_UHD.jpg)
 
 ## 归档
 
