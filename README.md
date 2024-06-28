@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240627 - “甜蜜的”穹顶
+## 20240628 - 最具加勒比海风情的海岛
 
-###### 黄昏时分的圣母百花大教堂，佛罗伦萨，意大利
+###### 诺曼底海岸的绍塞群岛，法国
 
-![](https://www.bing.com/th?id=OHR.FlorenceDuomo_ZH-CN7379412586_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChauseyIslands_ZH-CN4241103934_UHD.jpg)
 
 ## 归档
 
