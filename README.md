@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240629 - 只见树木，不见森林
+## 20240630 - 你不会忘记它的！
 
-###### 宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国
+###### 乌布寺庙的石雕,巴厘岛,印度尼西亚
 
-![](https://www.bing.com/th?id=OHR.NienhagenMecklenburg_ZH-CN4482269700_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_UHD.jpg)
 
 ## 归档
 
