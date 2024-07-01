@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20240630 - 你不会忘记它的！
+## 20240701 - 为加拿大干杯
 
-###### 乌布寺庙的石雕,巴厘岛,印度尼西亚
+###### 菲斯加德灯塔，埃斯奎莫尔特港，科尔伍德，不列颠哥伦比亚省，加拿大
 
-![](https://www.bing.com/th?id=OHR.UbudBali_ZH-CN4891348277_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FisgardLighthouse_ZH-CN5474064913_UHD.jpg)
 
 ## 归档
 
+| [202407](/202407/README.md)
 | [202406](/202406/README.md)
 | [202405](/202405/README.md)
 | [202404](/202404/README.md)
