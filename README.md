@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240703 - 等等，谁在那儿？
+## 20240704 - 风景如画的白色小镇
 
-###### 猫鼬家族
+###### 扎哈拉德拉谢拉，安达卢西亚，西班牙
 
-![](https://www.bing.com/th?id=OHR.MeerkatManor_ZH-CN2486051161_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ZaharaDeLaSierra_ZH-CN6500182265_UHD.jpg)
 
 ## 归档
 
