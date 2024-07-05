@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240704 - 风景如画的白色小镇
+## 20240705 - 邂逅美丽海岸线
 
-###### 扎哈拉德拉谢拉，安达卢西亚，西班牙
+###### 丹翠雨林的诺亚海滩，昆士兰州，澳大利亚
 
-![](https://www.bing.com/th?id=OHR.ZaharaDeLaSierra_ZH-CN6500182265_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_UHD.jpg)
 
 ## 归档
 
