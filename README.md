@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240705 - 邂逅美丽海岸线
+## 20240706 - 让我们扬帆起航！
 
-###### 丹翠雨林的诺亚海滩，昆士兰州，澳大利亚
+###### 从康威河眺望康威城堡，威尔士
 
-![](https://www.bing.com/th?id=OHR.NoahBeach_ZH-CN6676061324_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ConwyRiver_ZH-CN6871799250_UHD.jpg)
 
 ## 归档
 
