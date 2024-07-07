@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240706 - 让我们扬帆起航！
+## 20240707 - 阳光下的梯田
 
-###### 从康威河眺望康威城堡，威尔士
+###### 越南安沛省木仓寨的水稻梯田
 
-![](https://www.bing.com/th?id=OHR.ConwyRiver_ZH-CN6871799250_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YenBaiTerraces_ZH-CN7224453501_UHD.jpg)
 
 ## 归档
 
