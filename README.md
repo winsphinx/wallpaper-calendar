@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240708 - 一剂抗氧化剂
+## 20240709 - 千仞高壁
 
-###### 野生蓝莓
+###### 阿根廷拉里奥哈省塔兰帕亚国家公园
 
-![](https://www.bing.com/th?id=OHR.NorwayBlueberries_ZH-CN7643097235_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TalampayaNP_ZH-CN7905859626_UHD.jpg)
 
 ## 归档
 
