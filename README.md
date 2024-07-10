@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240709 - 千仞高壁
+## 20240710 - 感恩的巨嘴鸟
 
-###### 阿根廷拉里奥哈省塔兰帕亚国家公园
+###### 领簇舌巨嘴鸟，哥斯达黎加
 
-![](https://www.bing.com/th?id=OHR.TalampayaNP_ZH-CN7905859626_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CollaredAracari_ZH-CN8787234462_UHD.jpg)
 
 ## 归档
 
