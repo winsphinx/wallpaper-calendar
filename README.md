@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240710 - 感恩的巨嘴鸟
+## 20240711 - 你是81亿人口中的一员
 
-###### 领簇舌巨嘴鸟，哥斯达黎加
+###### 甘吉，西西里岛，意大利
 
-![](https://www.bing.com/th?id=OHR.CollaredAracari_ZH-CN8787234462_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_UHD.jpg)
 
 ## 归档
 
