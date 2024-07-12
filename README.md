@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240711 - 你是81亿人口中的一员
+## 20240712 - 风雨无阻
 
-###### 甘吉，西西里岛，意大利
+###### 雷尼尔山国家公园的野花，华盛顿州，美国
 
-![](https://www.bing.com/th?id=OHR.GangiSicily_ZH-CN9086944081_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_UHD.jpg)
 
 ## 归档
 
