@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240712 - 风雨无阻
+## 20240713 - 快看，这是沉积岩哦
 
-###### 雷尼尔山国家公园的野花，华盛顿州，美国
+###### 卡帕多西亚的童话烟囱和窑洞，土耳其
 
-![](https://www.bing.com/th?id=OHR.RainierWildflowers_ZH-CN7392242353_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_UHD.jpg)
 
 ## 归档
 
