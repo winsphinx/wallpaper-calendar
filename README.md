@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240713 - 快看，这是沉积岩哦
+## 20240714 - 鲨鱼保护日
 
-###### 卡帕多西亚的童话烟囱和窑洞，土耳其
+###### 女王花园群岛的镰形真鲨，古巴
 
-![](https://www.bing.com/th?id=OHR.CappadociaRocks_ZH-CN9283633861_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SilkyShark_ZH-CN9523915460_UHD.jpg)
 
 ## 归档
 
