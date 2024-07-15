@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240714 - 鲨鱼保护日
+## 20240715 - 宁静惬意的海滨风光
 
-###### 女王花园群岛的镰形真鲨，古巴
+###### 立石公园，神奈川县，日本
 
-![](https://www.bing.com/th?id=OHR.SilkyShark_ZH-CN9523915460_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_UHD.jpg)
 
 ## 归档
 
