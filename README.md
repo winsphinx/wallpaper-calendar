@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240715 - 宁静惬意的海滨风光
+## 20240716 - 挖掘过去
 
-###### 立石公园，神奈川县，日本
+###### 斯卡拉布雷的新石器时代遗迹,奥克尼群岛,苏格兰
 
-![](https://www.bing.com/th?id=OHR.TateishiPark_ZH-CN9903501398_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AncientOrkney_ZH-CN1110318653_UHD.jpg)
 
 ## 归档
 
