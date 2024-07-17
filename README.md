@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240716 - 挖掘过去
+## 20240717 - 高耸入云的历史建筑
 
-###### 斯卡拉布雷的新石器时代遗迹,奥克尼群岛,苏格兰
+###### 德国中世纪城市罗滕堡
 
-![](https://www.bing.com/th?id=OHR.AncientOrkney_ZH-CN1110318653_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_UHD.jpg)
 
 ## 归档
 
