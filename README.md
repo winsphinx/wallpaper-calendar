@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240717 - 高耸入云的历史建筑
+## 20240718 - 意义深远
 
-###### 德国中世纪城市罗滕堡
+###### Coral reef in the Indian Ocean, Mayotte, France
 
-![](https://www.bing.com/th?id=OHR.MedievalRothenburg_ZH-CN1522774136_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_UHD.jpg)
 
 ## 归档
 
