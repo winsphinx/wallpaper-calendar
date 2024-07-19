@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240718 - 意义深远
+## 20240719 - 巧妙的伪装
 
-###### Coral reef in the Indian Ocean, Mayotte, France
+###### 河岸上的一只年轻美洲虎，潘塔纳尔，巴西
 
-![](https://www.bing.com/th?id=OHR.MayotteCoral_ZH-CN8106288026_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_UHD.jpg)
 
 ## 归档
 
