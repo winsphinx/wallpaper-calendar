@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240719 - 巧妙的伪装
+## 20240720 - 到月亮上去
 
-###### 河岸上的一只年轻美洲虎，潘塔纳尔，巴西
+###### 月球
 
-![](https://www.bing.com/th?id=OHR.YoungJaguar_ZH-CN2249923627_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MineralMoon_ZH-CN2555749456_UHD.jpg)
 
 ## 归档
 
