@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240720 - 到月亮上去
+## 20240721 - 香料岛之旅
 
-###### 月球
+###### 肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚
 
-![](https://www.bing.com/th?id=OHR.MineralMoon_ZH-CN2555749456_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ZanzibarBoats_ZH-CN2915388379_UHD.jpg)
 
 ## 归档
 
