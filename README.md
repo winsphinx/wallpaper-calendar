@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240721 - 香料岛之旅
+## 20240722 - 和我一起避暑吧！
 
-###### 肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚
+###### 树上的中国小熊猫, 成都, 四川省, 中国
 
-![](https://www.bing.com/th?id=OHR.ZanzibarBoats_ZH-CN2915388379_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN6033129823_UHD.jpg)
 
 ## 归档
 
