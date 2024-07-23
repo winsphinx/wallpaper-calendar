@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240722 - 和我一起避暑吧！
+## 20240723 - 历史的回响
 
-###### 树上的中国小熊猫, 成都, 四川省, 中国
+###### 迈索尼城堡，麦西尼亚州，希腊
 
-![](https://www.bing.com/th?id=OHR.TheGreatHeat2024_ZH-CN6033129823_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MethoniCastle_ZH-CN4054146065_UHD.jpg)
 
 ## 归档
 
