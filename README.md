@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240723 - 历史的回响
+## 20240724 - 可爱的羊咩咩一家
 
-###### 迈索尼城堡，麦西尼亚州，希腊
+###### 北约克郡的黑面羊羊群，英格兰
 
-![](https://www.bing.com/th?id=OHR.MethoniCastle_ZH-CN4054146065_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_UHD.jpg)
 
 ## 归档
 
