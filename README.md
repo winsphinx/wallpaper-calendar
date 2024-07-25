@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240724 - 可爱的羊咩咩一家
+## 20240725 - 深入其中
 
-###### 北约克郡的黑面羊羊群，英格兰
+###### 大烟山国家公园的森林小道，田纳西州，美国
 
-![](https://www.bing.com/th?id=OHR.SheepCousins_ZH-CN4262132476_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SmokyMountainTrail_ZH-CN4691667074_UHD.jpg)
 
 ## 归档
 
