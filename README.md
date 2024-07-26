@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240725 - 深入其中
+## 20240726 - 比赛开始
 
-###### 大烟山国家公园的森林小道，田纳西州，美国
+###### 塞纳河上的新桥，巴黎，法国
 
-![](https://www.bing.com/th?id=OHR.SmokyMountainTrail_ZH-CN4691667074_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_UHD.jpg)
 
 ## 归档
 
