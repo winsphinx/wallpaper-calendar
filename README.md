@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240726 - 比赛开始
+## 20240727 - 完美的葡萄酒
 
-###### 塞纳河上的新桥，巴黎，法国
+###### 摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国
 
-![](https://www.bing.com/th?id=OHR.PontNeuf_ZH-CN3158359446_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_UHD.jpg)
 
 ## 归档
 
