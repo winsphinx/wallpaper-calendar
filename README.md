@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240727 - 完美的葡萄酒
+## 20240728 - 色彩斑斓的海岸线
 
-###### 摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国
+###### 斯科讷省海滩上的浴场小屋，瑞典
 
-![](https://www.bing.com/th?id=OHR.RhinelandVineyards_ZH-CN3332101688_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_UHD.jpg)
 
 ## 归档
 
