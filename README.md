@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240728 - 色彩斑斓的海岸线
+## 20240729 - 咆哮与探索
 
-###### 斯科讷省海滩上的浴场小屋，瑞典
+###### 科贝国家公园的老虎兄弟，北阿坎德邦，印度
 
-![](https://www.bing.com/th?id=OHR.BeachHutsSweden_ZH-CN4193150313_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_UHD.jpg)
 
 ## 归档
 
