@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240729 - 咆哮与探索
+## 20240730 - 中世纪的曼哈顿
 
-###### 科贝国家公园的老虎兄弟，北阿坎德邦，印度
+###### 圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚
 
-![](https://www.bing.com/th?id=OHR.CorbettTigers_ZH-CN6927569938_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_UHD.jpg)
 
 ## 归档
 
