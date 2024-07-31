@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240730 - 中世纪的曼哈顿
+## 20240731 - 这里有“胡图”吗？
 
-###### 圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚
+###### 石林，日落点，布莱斯峡谷国家公园，犹他州，美国
 
-![](https://www.bing.com/th?id=OHR.GimignanoTuscany_ZH-CN8059318824_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_UHD.jpg)
 
 ## 归档
 
