@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20240731 - 这里有“胡图”吗？
+## 20240801 - 物价喜人
 
-###### 石林，日落点，布莱斯峡谷国家公园，犹他州，美国
+###### 卡普泰湖水上市场，兰加马蒂，孟加拉
 
-![](https://www.bing.com/th?id=OHR.HoodoosBryce_ZH-CN8398575172_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KaptaiLake_ZH-CN9085738832_UHD.jpg)
 
 ## 归档
 
+| [202408](/202408/README.md)
 | [202407](/202407/README.md)
 | [202406](/202406/README.md)
 | [202405](/202405/README.md)
