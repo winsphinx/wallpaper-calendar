@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240801 - 物价喜人
+## 20240802 - 彩虹之下的某个地方
 
-###### 卡普泰湖水上市场，兰加马蒂，孟加拉
+###### 象鼻湾，维尔京群岛国家公园，圣约翰岛
 
-![](https://www.bing.com/th?id=OHR.KaptaiLake_ZH-CN9085738832_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_UHD.jpg)
 
 ## 归档
 
