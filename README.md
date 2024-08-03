@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240802 - 彩虹之下的某个地方
+## 20240803 - 武隆景区的“三生三世”
 
-###### 象鼻湾，维尔京群岛国家公园，圣约翰岛
+###### 天生三桥，重庆武隆岩溶国家地质公园，中国
 
-![](https://www.bing.com/th?id=OHR.TrunkBay_ZH-CN9268190655_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WulongKarst_ZH-CN9386528384_UHD.jpg)
 
 ## 归档
 
