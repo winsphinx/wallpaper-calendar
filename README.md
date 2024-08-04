@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240803 - 武隆景区的“三生三世”
+## 20240804 - 我是你的朋友
 
-###### 天生三桥，重庆武隆岩溶国家地质公园，中国
+###### 黑斑羚和红嘴牛椋鸟，南非
 
-![](https://www.bing.com/th?id=OHR.WulongKarst_ZH-CN9386528384_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ImpalaOxpecker_ZH-CN9652434873_UHD.jpg)
 
 ## 归档
 
