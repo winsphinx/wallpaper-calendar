@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240804 - 我是你的朋友
+## 20240805 - 一片紫色的海洋
 
-###### 黑斑羚和红嘴牛椋鸟，南非
+###### 薰衣草田，赫特福德郡 ，英格兰，英国
 
-![](https://www.bing.com/th?id=OHR.ImpalaOxpecker_ZH-CN9652434873_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HertfordshireLavender_ZH-CN9771886404_UHD.jpg)
 
 ## 归档
 
