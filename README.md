@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240805 - 一片紫色的海洋
+## 20240806 - 迎合所有人口味的景点
 
-###### 薰衣草田，赫特福德郡 ，英格兰，英国
+###### 莫洛基尼，毛伊岛，夏威夷，美国
 
-![](https://www.bing.com/th?id=OHR.HertfordshireLavender_ZH-CN9771886404_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_UHD.jpg)
 
 ## 归档
 
