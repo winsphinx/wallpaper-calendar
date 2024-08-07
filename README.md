@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240806 - 迎合所有人口味的景点
+## 20240807 - 不止是航海需要它
 
-###### 莫洛基尼，毛伊岛，夏威夷，美国
+###### 圣约瑟夫北码头内灯和外灯，密歇根州，美国
 
-![](https://www.bing.com/th?id=OHR.MolokiniHawaii_ZH-CN0375050872_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_UHD.jpg)
 
 ## 归档
 
