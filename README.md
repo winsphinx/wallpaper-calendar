@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240807 - 不止是航海需要它
+## 20240808 - 小猫头鹰瞪了你一眼
 
-###### 圣约瑟夫北码头内灯和外灯，密歇根州，美国
+###### 横斑腹小鸮，曼谷，泰国
 
-![](https://www.bing.com/th?id=OHR.MichiganLighthouse_ZH-CN0581377136_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_UHD.jpg)
 
 ## 归档
 
