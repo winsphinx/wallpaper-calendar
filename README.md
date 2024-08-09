@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240808 - 小猫头鹰瞪了你一眼
+## 20240809 - 弘扬土著文化
 
-###### 横斑腹小鸮，曼谷，泰国
+###### 库斯科附近的萨克塞华曼印加遗址，秘鲁
 
-![](https://www.bing.com/th?id=OHR.SpottedOwlet_ZH-CN0841935587_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_UHD.jpg)
 
 ## 归档
 
