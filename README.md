@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240809 - 弘扬土著文化
+## 20240810 - 星空下的约书亚树
 
-###### 库斯科附近的萨克塞华曼印加遗址，秘鲁
+###### 约书亚树国家公园，加利福尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.IncaRuinPeru_ZH-CN5068602301_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_UHD.jpg)
 
 ## 归档
 
