@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240810 - 星空下的约书亚树
+## 20240811 - 人迹罕至的路
 
-###### 约书亚树国家公园，加利福尼亚州，美国
+###### 通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省
 
-![](https://www.bing.com/th?id=OHR.JoshuaTreeNP_ZH-CN5917576674_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_UHD.jpg)
 
 ## 归档
 
