@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240811 - 人迹罕至的路
+## 20240812 - 你的声音嘹亮而清晰
 
-###### 通往肯尼迪湖的木板路，温哥华岛，加拿大不列颠哥伦比亚省
+###### 非洲象，肯尼亚安博塞利国家公园
 
-![](https://www.bing.com/th?id=OHR.TofinoVancouver_ZH-CN6920493172_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ElephantsAmboseli_ZH-CN7596989061_UHD.jpg)
 
 ## 归档
 
