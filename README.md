@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240812 - 你的声音嘹亮而清晰
+## 20240813 - 亚得里亚海高地
 
-###### 非洲象，肯尼亚安博塞利国家公园
+###### 特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚
 
-![](https://www.bing.com/th?id=OHR.ElephantsAmboseli_ZH-CN7596989061_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DugiOtokCroatia_ZH-CN7791404392_UHD.jpg)
 
 ## 归档
 
