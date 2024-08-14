@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240813 - 亚得里亚海高地
+## 20240814 - 今天感觉很精神
 
-###### 特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚
+###### 澳洲魔蜥，瓦塔卡国家公园，澳大利亚
 
-![](https://www.bing.com/th?id=OHR.DugiOtokCroatia_ZH-CN7791404392_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WatarrkaLizard_ZH-CN7974623468_UHD.jpg)
 
 ## 归档
 
