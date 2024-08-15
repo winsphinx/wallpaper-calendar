@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240814 - 今天感觉很精神
+## 20240815 - “洞”之新世界
 
-###### 澳洲魔蜥，瓦塔卡国家公园，澳大利亚
+###### 韩松洞，风牙者榜国家公园，越南
 
-![](https://www.bing.com/th?id=OHR.WatarrkaLizard_ZH-CN7974623468_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HangCave_ZH-CN9217507365_UHD.jpg)
 
 ## 归档
 
