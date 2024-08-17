@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240816 - 系好安全带！
+## 20240817 - 照亮前行之路
 
-###### 长岛温泉乐园的过山车，三重县，日本
+###### 阿尔凡齐纳灯塔，阿尔加维，葡萄牙
 
-![](https://www.bing.com/th?id=OHR.JapanRollerCoaster_ZH-CN7954058301_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlfanzinaLighthouse_ZH-CN9704515669_UHD.jpg)
 
 ## 归档
 
