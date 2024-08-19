@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240818 - 一个无与伦比的码头
+## 20240819 - 铿锵有力的打击乐
 
-###### 日落时的亨廷顿海滩码头，加利福尼亚州，美国
+###### Bufadero de la Garita，大加那利岛，西班牙
 
-![](https://www.bing.com/th?id=OHR.HuntingtonBeach_ZH-CN0368691951_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RegataSanGines_ZH-CN0807566522_UHD.jpg)
 
 ## 归档
 
