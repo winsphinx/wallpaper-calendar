@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240820 - 鹿和羚羊嬉戏的地方
+## 20240821 - 等待前往加拉帕戈斯群岛
 
-###### 大提顿国家公园日出,怀俄明州,美国
+###### 纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔
 
-![](https://www.bing.com/th?id=OHR.TetonSunrise_ZH-CN1118823848_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_UHD.jpg)
 
 ## 归档
 
