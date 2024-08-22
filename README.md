@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240821 - 等待前往加拉帕戈斯群岛
+## 20240822 - 晨曦之光
 
-###### 纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔
+###### 海洋城日出时的鸟瞰图，马里兰州，美国
 
-![](https://www.bing.com/th?id=OHR.NazcaBooby_ZH-CN1534931799_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_UHD.jpg)
 
 ## 归档
 
