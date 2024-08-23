@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240822 - 晨曦之光
+## 20240823 - 通往过去的大门
 
-###### 海洋城日出时的鸟瞰图，马里兰州，美国
+###### 帕侬蓝寺，武里南府，泰国
 
-![](https://www.bing.com/th?id=OHR.OceanCityMD_ZH-CN1876928284_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PrasatPhanom_ZH-CN0445884858_UHD.jpg)
 
 ## 归档
 
