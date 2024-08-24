@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240823 - 通往过去的大门
+## 20240824 - 尽享森林与水域之美
 
-###### 帕侬蓝寺，武里南府，泰国
+###### 卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国
 
-![](https://www.bing.com/th?id=OHR.PrasatPhanom_ZH-CN0445884858_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_UHD.jpg)
 
 ## 归档
 
