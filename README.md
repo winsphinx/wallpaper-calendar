@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240824 - 尽享森林与水域之美
+## 20240825 - 守护这片乐园
 
-###### 卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国
+###### 急流湖的日出，冰川国家公园，蒙大拿州，美国
 
-![](https://www.bing.com/th?id=OHR.KatahdinWoods_ZH-CN0748954905_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_UHD.jpg)
 
 ## 归档
 
