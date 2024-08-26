@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240825 - 守护这片乐园
+## 20240826 - 田园诗般的岛屿之旅
 
-###### 急流湖的日出，冰川国家公园，蒙大拿州，美国
+###### 巴尔米拉环礁国家野生动物保护区，中太平洋
 
-![](https://www.bing.com/th?id=OHR.SwiftcurrentLake_ZH-CN1513761894_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_UHD.jpg)
 
 ## 归档
 
