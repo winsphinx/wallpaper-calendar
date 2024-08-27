@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240826 - 田园诗般的岛屿之旅
+## 20240827 - 沼泽里的生活真美好！
 
-###### 巴尔米拉环礁国家野生动物保护区，中太平洋
+###### 黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁
 
-![](https://www.bing.com/th?id=OHR.PalmyraAtoll_ZH-CN1814325540_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_UHD.jpg)
 
 ## 归档
 
