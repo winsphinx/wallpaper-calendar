@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240827 - 沼泽里的生活真美好！
+## 20240828 - 比赛开始！
 
-###### 黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁
+###### 蒙马特和圣心大教堂，巴黎，法国
 
-![](https://www.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_UHD.jpg)
 
 ## 归档
 
