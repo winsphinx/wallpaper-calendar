@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240828 - 比赛开始！
+## 20240829 - 加泰罗尼亚式的悬念
 
-###### 蒙马特和圣心大教堂，巴黎，法国
+###### 富利特堡-德拉罗卡，加泰罗尼亚，西班牙
 
-![](https://www.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CastellfollitSpain_ZH-CN2990517626_UHD.jpg)
 
 ## 归档
 
