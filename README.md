@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240829 - 加泰罗尼亚式的悬念
+## 20240830 - 对大块头温柔点
 
-###### 富利特堡-德拉罗卡，加泰罗尼亚，西班牙
+###### 鸟头湾的鲸鲨，西巴布亚，印度尼西亚
 
-![](https://www.bing.com/th?id=OHR.CastellfollitSpain_ZH-CN2990517626_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_UHD.jpg)
 
 ## 归档
 
