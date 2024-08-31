@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240830 - 对大块头温柔点
+## 20240831 - 沙丘日和沙漠烟霞
 
-###### 鸟头湾的鲸鲨，西巴布亚，印度尼西亚
+###### 撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚
 
-![](https://www.bing.com/th?id=OHR.WhaleSharkDay_ZH-CN3334940631_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DjanetAlgeria_ZH-CN3458706695_UHD.jpg)
 
 ## 归档
 
