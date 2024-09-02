@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240901 - 小船轻轻划过泰晤士河
+## 20240902 - 红绿金刚鹦鹉之家
 
-###### 泰晤士河，伦敦，英国
+###### 红绿金刚鹦鹉，南马托格罗索州，巴西
 
-![](https://www.bing.com/th?id=OHR.ThamesLondon_ZH-CN3629717426_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BuracodasAraras_ZH-CN3881985508_UHD.jpg)
 
 ## 归档
 
