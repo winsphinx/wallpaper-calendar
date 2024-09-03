@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240902 - 红绿金刚鹦鹉之家
+## 20240903 - 原始之美，人人共享
 
-###### 红绿金刚鹦鹉，南马托格罗索州，巴西
+###### 迷人的水晶湖，高山湖泊，华盛顿州，美国
 
-![](https://www.bing.com/th?id=OHR.BuracodasAraras_ZH-CN3881985508_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlpineLakes_ZH-CN4537389724_UHD.jpg)
 
 ## 归档
 
