@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240903 - 原始之美，人人共享
+## 20240904 - 物以类聚，人以群分
 
-###### 迷人的水晶湖，高山湖泊，华盛顿州，美国
+###### 乌雕鸮，巴基斯坦
 
-![](https://www.bing.com/th?id=OHR.AlpineLakes_ZH-CN4537389724_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DuskyOwls_ZH-CN4729762831_UHD.jpg)
 
 ## 归档
 
