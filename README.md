@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240905 - 2024年多伦多国际电影节
+## 20240906 - 你可曾见过此等景色
 
-###### 多伦多城市天际线,加拿大
+###### 古老山毛榉树，格莱纳里夫森林公园，安特里姆郡，北爱尔兰
 
-![](https://www.bing.com/th?id=OHR.TIFF2024_ZH-CN4896695918_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_UHD.jpg)
 
 ## 归档
 
