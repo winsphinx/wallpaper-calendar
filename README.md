@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240906 - 你可曾见过此等景色
+## 20240907 - 嗡嗡作响
 
-###### 古老山毛榉树，格莱纳里夫森林公园，安特里姆郡，北爱尔兰
+###### 朱红蜂鸟，圣克鲁斯，加利福尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.GlenariffPark_ZH-CN4667558707_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SantaCruzHummer_ZH-CN5448262039_UHD.jpg)
 
 ## 归档
 
