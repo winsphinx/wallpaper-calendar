@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240907 - 嗡嗡作响
+## 20240908 - 一座千年历史的修道院
 
-###### 朱红蜂鸟，圣克鲁斯，加利福尼亚州，美国
+###### 加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国
 
-![](https://www.bing.com/th?id=OHR.SantaCruzHummer_ZH-CN5448262039_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_UHD.jpg)
 
 ## 归档
 
