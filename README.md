@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240908 - 一座千年历史的修道院
+## 20240909 - “大水”中的彩虹波
 
-###### 加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国
+###### 阿根廷和巴西边境的伊瓜苏瀑布
 
-![](https://www.bing.com/th?id=OHR.Canigou_ZH-CN6145410455_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_UHD.jpg)
 
 ## 归档
 
