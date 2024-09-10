@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240909 - “大水”中的彩虹波
+## 20240910 - 从天际线到水面
 
-###### 阿根廷和巴西边境的伊瓜苏瀑布
+###### 瓦斯科·达·伽马大桥，里斯本，葡萄牙
 
-![](https://www.bing.com/th?id=OHR.IguazuRainbow_ZH-CN6524347982_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_UHD.jpg)
 
 ## 归档
 
