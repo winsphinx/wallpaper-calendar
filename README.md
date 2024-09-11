@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240910 - 从天际线到水面
+## 20240911 - 石头编织的童话
 
-###### 瓦斯科·达·伽马大桥，里斯本，葡萄牙
+###### 埃尔茨城堡，德国
 
-![](https://www.bing.com/th?id=OHR.BridgeLisbon_ZH-CN6877671644_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EltzCastle_ZH-CN7586749377_UHD.jpg)
 
 ## 归档
 
