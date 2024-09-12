@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240911 - 石头编织的童话
+## 20240912 - 度过美好的一天
 
-###### 埃尔茨城堡，德国
+###### 留尼汪岛附近的海豚群，印度洋，法国海外省
 
-![](https://www.bing.com/th?id=OHR.EltzCastle_ZH-CN7586749377_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DolphinReunion_ZH-CN7681290861_UHD.jpg)
 
 ## 归档
 
