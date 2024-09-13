@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240912 - 度过美好的一天
+## 20240913 - 自然与人类的天堂
 
-###### 留尼汪岛附近的海豚群，印度洋，法国海外省
+###### 雷耶斯角国家海岸灯塔，加利福尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.DolphinReunion_ZH-CN7681290861_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_UHD.jpg)
 
 ## 归档
 
