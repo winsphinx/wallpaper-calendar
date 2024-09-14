@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240913 - 自然与人类的天堂
+## 20240914 - 古老又神秘
 
-###### 雷耶斯角国家海岸灯塔，加利福尼亚州，美国
+###### 阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利
 
-![](https://www.bing.com/th?id=OHR.PointReyes_ZH-CN7781514086_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_UHD.jpg)
 
 ## 归档
 
