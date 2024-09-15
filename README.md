@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240914 - 古老又神秘
+## 20240915 - 香料红和水晶蓝
 
-###### 阿胡汤加里基的日出，拉帕·努伊国家公园，复活节岛，智利
+###### 阿科马尼奥海滩，卡拉布里亚，意大利
 
-![](https://www.bing.com/th?id=OHR.RapaNuiSunrise_ZH-CN1220508877_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CalabriaPeperoncino_ZH-CN8603617212_UHD.jpg)
 
 ## 归档
 
