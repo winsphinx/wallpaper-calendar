@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240916 - 蹦蹦跳跳，快乐到老
+## 20240917 - 明月千里寄相思
 
-###### 日出时的小袋鼠，阿德莱德河，北领地，澳大利亚
+###### 月圆之夜的豫园，上海，中国
 
-![](https://www.bing.com/th?id=OHR.SunriseWallabies_ZH-CN8725891401_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MidAutumnFestival2024_ZH-CN9096556094_UHD.jpg)
 
 ## 归档
 
