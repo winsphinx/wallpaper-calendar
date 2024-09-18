@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240917 - 明月千里寄相思
+## 20240918 - 云中之城
 
-###### 月圆之夜的豫园，上海，中国
+###### 郡上八幡城，岐阜县，日本
 
-![](https://www.bing.com/th?id=OHR.MidAutumnFestival2024_ZH-CN9096556094_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GujoHachiman_ZH-CN9192289658_UHD.jpg)
 
 ## 归档
 
