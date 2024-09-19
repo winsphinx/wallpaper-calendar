@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240918 - 云中之城
+## 20240919 - 埃尔博河上空的银河
 
-###### 郡上八幡城，岐阜县，日本
+###### 埃尔博河上空的银河，阿尔伯塔省，加拿大
 
-![](https://www.bing.com/th?id=OHR.GujoHachiman_ZH-CN9192289658_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ElbowRiver_ZH-CN9580175593_UHD.jpg)
 
 ## 归档
 
