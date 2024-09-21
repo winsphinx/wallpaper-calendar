@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240920 - 海盗的最终归宿
+## 20240921 - 为慕尼黑啤酒节干杯！
 
-###### 奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国
+###### Oktoberfest in Munich at sunset
 
-![](https://www.bing.com/th?id=OHR.OcracokeLight_ZH-CN9810840077_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_UHD.jpg)
 
 ## 归档
 
