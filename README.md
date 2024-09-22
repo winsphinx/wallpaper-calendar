@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240921 - 为慕尼黑啤酒节干杯！
+## 20240922 - 陷入沉思
 
-###### Oktoberfest in Munich at sunset
+###### 巴特米尔湖，湖区国家公园，英格兰，英国
 
-![](https://www.bing.com/th?id=OHR.MunichBeerfest_ZH-CN0304560562_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_UHD.jpg)
 
 ## 归档
 
