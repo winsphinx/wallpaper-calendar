@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240922 - 陷入沉思
+## 20240923 - 令人惊叹的海獭
 
-###### 巴特米尔湖，湖区国家公园，英格兰，英国
+###### 海獭，威廉王子湾,阿拉斯加州,美国
 
-![](https://www.bing.com/th?id=OHR.AutumnCumbria_ZH-CN0565958390_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IcebergOtter_ZH-CN0972467238_UHD.jpg)
 
 ## 归档
 
