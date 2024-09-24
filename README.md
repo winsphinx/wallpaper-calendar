@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240923 - 令人惊叹的海獭
+## 20240924 - 你会相信这种观点吗？
 
-###### 海獭，威廉王子湾,阿拉斯加州,美国
+###### 斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛
 
-![](https://www.bing.com/th?id=OHR.IcebergOtter_ZH-CN0972467238_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SkaftafellWaterfall_ZH-CN1766863001_UHD.jpg)
 
 ## 归档
 
