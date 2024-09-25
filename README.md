@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240924 - 你会相信这种观点吗？
+## 20240925 - 古代巨人的王国
 
-###### 斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛
+###### 巨型红杉，红杉国家公园，加利福尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.SkaftafellWaterfall_ZH-CN1766863001_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_UHD.jpg)
 
 ## 归档
 
