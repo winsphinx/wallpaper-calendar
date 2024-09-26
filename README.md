@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240925 - 古代巨人的王国
+## 20240926 - 呼叫所有巨嘴鸟的粉丝
 
-###### 巨型红杉，红杉国家公园，加利福尼亚州，美国
+###### 蓝斑巨嘴鸟，洛斯戈查尔斯国家公园，哥斯达黎加
 
-![](https://www.bing.com/th?id=OHR.GiantSequoias_ZH-CN2666897238_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LittleToucanet_ZH-CN2910262009_UHD.jpg)
 
 ## 归档
 
