@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240926 - 呼叫所有巨嘴鸟的粉丝
+## 20240927 - 在漂浮的城市之上
 
-###### 蓝斑巨嘴鸟，洛斯戈查尔斯国家公园，哥斯达黎加
+###### 大运河和安康圣母教堂的鸟瞰图，威尼斯，意大利
 
-![](https://www.bing.com/th?id=OHR.LittleToucanet_ZH-CN2910262009_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VeniceAerial_ZH-CN4070720525_UHD.jpg)
 
 ## 归档
 
