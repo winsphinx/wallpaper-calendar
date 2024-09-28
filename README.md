@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240927 - 在漂浮的城市之上
+## 20240928 - 海湾群岛的光芒
 
-###### 大运河和安康圣母教堂的鸟瞰图，威尼斯，意大利
+###### 日出时的海滩，海湾岛国家海岸，佛罗里达，美国
 
-![](https://www.bing.com/th?id=OHR.VeniceAerial_ZH-CN4070720525_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FloridaSeashore_ZH-CN4671838639_UHD.jpg)
 
 ## 归档
 
