@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240928 - 海湾群岛的光芒
+## 20240929 - 连接康涅狄格州
 
-###### 日出时的海滩，海湾岛国家海岸，佛罗里达，美国
+###### 横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国
 
-![](https://www.bing.com/th?id=OHR.FloridaSeashore_ZH-CN4671838639_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_UHD.jpg)
 
 ## 归档
 
