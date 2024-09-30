@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20240929 - 连接康涅狄格州
+## 20240930 - 随浮冰漂流
 
-###### 横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国
+###### 斯匹次卑尔根岛北部的海象群，斯瓦尔巴群岛，挪威
 
-![](https://www.bing.com/th?id=OHR.ConnecticutBridge_ZH-CN4957862425_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WalrusNorway_ZH-CN5657804031_UHD.jpg)
 
 ## 归档
 
