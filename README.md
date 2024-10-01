@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20240930 - 随浮冰漂流
+## 20241001 - 绝美的秋日风景
 
-###### 斯匹次卑尔根岛北部的海象群，斯瓦尔巴群岛，挪威
+###### 禾木村的风景，新疆，中国
 
-![](https://www.bing.com/th?id=OHR.WalrusNorway_ZH-CN5657804031_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_UHD.jpg)
 
 ## 归档
 
+| [202410](/202410/README.md)
 | [202409](/202409/README.md)
 | [202408](/202408/README.md)
 | [202407](/202407/README.md)
