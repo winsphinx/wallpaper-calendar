@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241001 - 绝美的秋日风景
+## 20241002 - 河流的狂野舞蹈
 
-###### 禾木村的风景，新疆，中国
+###### 温德河，布鲁克斯山脉，北极国家野生动物保护区，阿拉斯加州，美国
 
-![](https://www.bing.com/th?id=OHR.NationalDay2024_ZH-CN7026189162_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_UHD.jpg)
 
 ## 归档
 
