@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241002 - 河流的狂野舞蹈
+## 20241003 - 盛大的爱情见证
 
-###### 温德河，布鲁克斯山脉，北极国家野生动物保护区，阿拉斯加州，美国
+###### 阿格拉的泰姬陵，安拉阿巴德，印度
 
-![](https://www.bing.com/th?id=OHR.WindRiverAlaska_ZH-CN7317039321_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TajMahalReflection_ZH-CN7498774173_UHD.jpg)
 
 ## 归档
 
