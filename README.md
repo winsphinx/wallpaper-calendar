@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241004 - 一轮蓝月亮
+## 20241005 - 跟着老师走！
 
-###### 木星的冰卫星木卫二
+###### 东察沃国家公园的非洲象，肯尼亚
 
-![](https://www.bing.com/th?id=OHR.EuropaMoon_ZH-CN0149249980_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_UHD.jpg)
 
 ## 归档
 
