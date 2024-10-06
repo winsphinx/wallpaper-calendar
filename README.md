@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241005 - 跟着老师走！
+## 20241006 - 一抹金色
 
-###### 东察沃国家公园的非洲象，肯尼亚
+###### 郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国
 
-![](https://www.bing.com/th?id=OHR.ElephantTeacher_ZH-CN0543308499_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_UHD.jpg)
 
 ## 归档
 
