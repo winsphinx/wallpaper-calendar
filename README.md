@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241006 - 一抹金色
+## 20241007 - 梦想成真的地方
 
-###### 郊狼峡谷拱门中的白杨树，格兰峡谷休闲区，犹他州，美国
+###### 法属波利尼西亚波拉波拉岛的鸟瞰图
 
-![](https://www.bing.com/th?id=OHR.CoyoteGulch_ZH-CN2869463336_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BoraPapeete_ZH-CN1991283465_UHD.jpg)
 
 ## 归档
 
