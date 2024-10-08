@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241007 - 梦想成真的地方
+## 20241008 - 托斯卡纳的石头小镇
 
-###### 法属波利尼西亚波拉波拉岛的鸟瞰图
+###### 索拉诺，托斯卡纳，意大利
 
-![](https://www.bing.com/th?id=OHR.BoraPapeete_ZH-CN1991283465_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SoranoItaly_ZH-CN1190725201_UHD.jpg)
 
 ## 归档
 
