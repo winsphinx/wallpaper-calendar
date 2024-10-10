@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241009 - 色彩斑斓的秋天
+## 20241010 - 托斯卡纳的石头小镇
 
-###### 马布尔附近的白杨树，科罗拉多州，美国
+###### 索拉诺，托斯卡纳，意大利
 
-![](https://www.bing.com/th?id=OHR.AspensColorado_ZH-CN0132780533_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SoranoItaly_ZH-CN5842160079_UHD.jpg)
 
 ## 归档
 
