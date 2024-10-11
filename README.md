@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241010 - 托斯卡纳的石头小镇
+## 20241011 - 云海奇观
 
-###### 索拉诺，托斯卡纳，意大利
+###### 黄山云海，安徽省，中国
 
-![](https://www.bing.com/th?id=OHR.SoranoItaly_ZH-CN5842160079_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_UHD.jpg)
 
 ## 归档
 
