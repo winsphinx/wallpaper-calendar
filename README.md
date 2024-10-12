@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241011 - 云海奇观
+## 20241012 - 飞越各大洲
 
-###### 黄山云海，安徽省，中国
+###### 林鸳鸯，魁北克省，加拿大
 
-![](https://www.bing.com/th?id=OHR.Chongyang2024_ZH-CN4180097837_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.QuebecDuck_ZH-CN0588954873_UHD.jpg)
 
 ## 归档
 
