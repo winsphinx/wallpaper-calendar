@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241012 - 飞越各大洲
+## 20241013 - 辉煌的塞维利亚
 
-###### 林鸳鸯，魁北克省，加拿大
+###### 塞维利亚王宫少女庭院，西班牙
 
-![](https://www.bing.com/th?id=OHR.QuebecDuck_ZH-CN0588954873_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlcazarSeville_ZH-CN5581795099_UHD.jpg)
 
 ## 归档
 
