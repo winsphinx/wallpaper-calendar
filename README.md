@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241014 - 沙滩的秘密和日落
+## 20241015 - 生存竞赛
 
-###### 可可海滩上的渔船，果阿邦，印度
+###### 马拉河的角马大迁徙，肯尼亚
 
-![](https://www.bing.com/th?id=OHR.CocoBeach_ZH-CN7503553722_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaraMigration_ZH-CN8215566853_UHD.jpg)
 
 ## 归档
 
