@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241015 - 生存竞赛
+## 20241016 - 发掘过去
 
-###### 马拉河的角马大迁徙，肯尼亚
+###### 侏罗纪海岸的箭石和菊石化石，多塞特郡，英国
 
-![](https://www.bing.com/th?id=OHR.MaraMigration_ZH-CN8215566853_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_UHD.jpg)
 
 ## 归档
 
