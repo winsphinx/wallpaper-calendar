@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241016 - 发掘过去
+## 20241017 - 随风摆动，进入秋天
 
-###### 侏罗纪海岸的箭石和菊石化石，多塞特郡，英国
+###### 地肤草，茨城县，日本
 
-![](https://www.bing.com/th?id=OHR.FossilsDorset_ZH-CN8722623801_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_UHD.jpg)
 
 ## 归档
 
