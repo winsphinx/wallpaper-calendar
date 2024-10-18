@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241017 - 随风摆动，进入秋天
+## 20241018 - 邂逅秋日的林荫道
 
-###### 地肤草，茨城县，日本
+###### 曼哈顿中央公园的秋天，纽约，美国
 
-![](https://www.bing.com/th?id=OHR.KochiaJapan_ZH-CN9896157139_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_UHD.jpg)
 
 ## 归档
 
