@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241018 - 邂逅秋日的林荫道
+## 20241019 - 立足现在，发掘过去
 
-###### 曼哈顿中央公园的秋天，纽约，美国
+###### 哈索尔神庙，邓德拉神庙群，基纳，埃及
 
-![](https://www.bing.com/th?id=OHR.CentralParkAutumn_ZH-CN2757358246_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DenderaTemple_ZH-CN3097745887_UHD.jpg)
 
 ## 归档
 
