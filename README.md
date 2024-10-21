@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241020 - 坚持住
+## 20241021 - 在秋天里傲然挺立
 
-###### 哥斯达黎加的三趾树懒
+###### 乔治·史密斯州立公园的柏树，佐治亚州，美国
 
-![](https://www.bing.com/th?id=OHR.SmilingSloth_ZH-CN4646662964_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_UHD.jpg)
 
 ## 归档
 
