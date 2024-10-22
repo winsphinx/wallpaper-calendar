@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241021 - 在秋天里傲然挺立
+## 20241022 - 可怕的外墙
 
-###### 乔治·史密斯州立公园的柏树，佐治亚州，美国
+###### 祖卡里宫，罗马，意大利
 
-![](https://www.bing.com/th?id=OHR.AutumnCypress_ZH-CN5099875619_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_UHD.jpg)
 
 ## 归档
 
