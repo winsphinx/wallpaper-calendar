@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241022 - 可怕的外墙
+## 20241023 - 无处可去的阶梯
 
-###### 祖卡里宫，罗马，意大利
+###### 雪莉夫人森林和古堡遗迹，新罕布什尔州，美国
 
-![](https://www.bing.com/th?id=OHR.MonsterDoor_ZH-CN6613337019_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MadameSherriCastle_ZH-CN8101580548_UHD.jpg)
 
 ## 归档
 
