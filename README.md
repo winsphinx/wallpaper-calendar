@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241023 - 无处可去的阶梯
+## 20241024 - “淘金热”后的鬼城
 
-###### 雪莉夫人森林和古堡遗迹，新罕布什尔州，美国
+###### 博迪州立历史公园，莫诺县，加利福尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.MadameSherriCastle_ZH-CN8101580548_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BodieCalifornia_ZH-CN8941360519_UHD.jpg)
 
 ## 归档
 
