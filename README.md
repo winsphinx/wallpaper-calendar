@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241024 - “淘金热”后的鬼城
+## 20241025 - 恐怖的高度
 
-###### 博迪州立历史公园，莫诺县，加利福尼亚州，美国
+###### 沙莫尼的勃朗峰，法国
 
-![](https://www.bing.com/th?id=OHR.BodieCalifornia_ZH-CN8941360519_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MontBlancMassif_ZH-CN9172264924_UHD.jpg)
 
 ## 归档
 
