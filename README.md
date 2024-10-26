@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241025 - 恐怖的高度
+## 20241026 - 海边的神秘树林
 
-###### 沙莫尼的勃朗峰，法国
+###### 幽灵森林，宁哈根，梅克伦堡-西波美拉尼亚，德国
 
-![](https://www.bing.com/th?id=OHR.MontBlancMassif_ZH-CN9172264924_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GhostForest_ZH-CN9648216213_UHD.jpg)
 
 ## 归档
 
