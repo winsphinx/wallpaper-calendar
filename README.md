@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241027 - 寒风中的温情
+## 20241028 - 雕刻时间到了
 
-###### 北极熊与幼崽，丘吉尔，曼尼托巴，加拿大
+###### 南瓜田，维多利亚，不列颠哥伦比亚省，加拿大
 
-![](https://www.bing.com/th?id=OHR.PolarBearHug_ZH-CN0696077546_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PumpkinMist_ZH-CN0898655859_UHD.jpg)
 
 ## 归档
 
