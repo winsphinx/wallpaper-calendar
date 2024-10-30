@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241029 - 猫头鹰的叫声在萦绕
+## 20241030 - 令人毛骨悚然的历史
 
-###### 大雕鸮
+###### 从苏格兰教堂墓地眺望爱丁堡城堡，英国
 
-![](https://www.bing.com/th?id=OHR.GreatOwl_ZH-CN1259534922_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_UHD.jpg)
 
 ## 归档
 
