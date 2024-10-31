@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241030 - 令人毛骨悚然的历史
+## 20241031 - 万圣节时冷冰冰的凝视
 
-###### 从苏格兰教堂墓地眺望爱丁堡城堡，英国
+###### 巴黎圣母院的奇美拉，法国
 
-![](https://www.bing.com/th?id=OHR.HauntedEdinburgh_ZH-CN1461834159_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_UHD.jpg)
 
 ## 归档
 
