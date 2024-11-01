@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20241031 - 万圣节时冷冰冰的凝视
+## 20241101 - 引以为豪的传统
 
-###### 巴黎圣母院的奇美拉，法国
+###### 秋季葡萄园的鸟瞰图，瓦恩哈尔特，黑森林，德国
 
-![](https://www.bing.com/th?id=OHR.GargoyleParis_ZH-CN1668628241_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VineyardsBlackForestFall_ZH-CN6767078591_UHD.jpg)
 
 ## 归档
 
+| [202411](/202411/README.md)
 | [202410](/202410/README.md)
 | [202409](/202409/README.md)
 | [202408](/202408/README.md)
