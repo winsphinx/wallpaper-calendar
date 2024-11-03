@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241102 - 从濒临灭绝到成为国家的象征
+## 20241103 - 自然与可持续发展的结合
 
-###### 黄石国家公园的美洲野牛，怀俄明州，美国
+###### 巢中的加勒比火烈鸟蛋，里奥拉加托斯自然保护区，尤卡坦州，墨西哥
 
-![](https://www.bing.com/th?id=OHR.BisonYellowstone_ZH-CN7320887379_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YucatanBiosphere_ZH-CN7442392453_UHD.jpg)
 
 ## 归档
 
