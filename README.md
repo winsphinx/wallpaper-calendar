@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241103 - 自然与可持续发展的结合
+## 20241104 - 胜过千言万语
 
-###### 巢中的加勒比火烈鸟蛋，里奥拉加托斯自然保护区，尤卡坦州，墨西哥
+###### 坎布里亚湖区，格拉斯米尔，英格兰
 
-![](https://www.bing.com/th?id=OHR.YucatanBiosphere_ZH-CN7442392453_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CumbriaAutumn_ZH-CN7697251216_UHD.jpg)
 
 ## 归档
 
