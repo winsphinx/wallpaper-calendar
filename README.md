@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241104 - 胜过千言万语
+## 20241105 - 异世界之美
 
-###### 坎布里亚湖区，格拉斯米尔，英格兰
+###### 马拉赫塞斯国家公园，马拉尼昂州,巴西
 
-![](https://www.bing.com/th?id=OHR.CumbriaAutumn_ZH-CN7697251216_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LencoisMaranhao_ZH-CN8194406488_UHD.jpg)
 
 ## 归档
 
