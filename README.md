@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241105 - 异世界之美
+## 20241106 - 日落的阴影
 
-###### 马拉赫塞斯国家公园，马拉尼昂州,巴西
+###### 奥林匹克国家公园石狮海滩，华盛顿州，美国
 
-![](https://www.bing.com/th?id=OHR.LencoisMaranhao_ZH-CN8194406488_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ShiShiBeach_ZH-CN8685799566_UHD.jpg)
 
 ## 归档
 
