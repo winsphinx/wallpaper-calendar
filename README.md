@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241106 - 日落的阴影
+## 20241107 - 初冬之美
 
-###### 奥林匹克国家公园石狮海滩，华盛顿州，美国
+###### 金色的松树，坝上草原，中国
 
-![](https://www.bing.com/th?id=OHR.ShiShiBeach_ZH-CN8685799566_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LiDong2024_ZH-CN9944723194_UHD.jpg)
 
 ## 归档
 
