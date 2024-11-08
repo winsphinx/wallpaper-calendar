@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241107 - 初冬之美
+## 20241108 - 来自冰与火之国
 
-###### 金色的松树，坝上草原，中国
+###### 冰岛冰川河流鸟瞰图
 
-![](https://www.bing.com/th?id=OHR.LiDong2024_ZH-CN9944723194_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_UHD.jpg)
 
 ## 归档
 
