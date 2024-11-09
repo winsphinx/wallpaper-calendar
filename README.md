@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241108 - 来自冰与火之国
+## 20241109 - 红尘中的宇宙美景
 
-###### 冰岛冰川河流鸟瞰图
+###### 银河，阿伊特本哈杜杜，摩洛哥
 
-![](https://www.bing.com/th?id=OHR.GlacialRivers_ZH-CN0260507556_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_UHD.jpg)
 
 ## 归档
 
