@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241109 - 红尘中的宇宙美景
+## 20241110 - 飞行中的火烈鸟
 
-###### 银河，阿伊特本哈杜杜，摩洛哥
+###### 加勒比火烈鸟，尤卡坦半岛，墨西哥
 
-![](https://www.bing.com/th?id=OHR.MoroccoMilkyWay_ZH-CN3544344290_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_UHD.jpg)
 
 ## 归档
 
