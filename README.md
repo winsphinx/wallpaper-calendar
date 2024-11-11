@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241110 - 飞行中的火烈鸟
+## 20241111 - 旷野里的第一片雪花
 
-###### 加勒比火烈鸟，尤卡坦半岛，墨西哥
+###### 班夫国家公园的日落，阿尔伯塔省，加拿大
 
-![](https://www.bing.com/th?id=OHR.YucatanFlamingos_ZH-CN0721673752_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_UHD.jpg)
 
 ## 归档
 
