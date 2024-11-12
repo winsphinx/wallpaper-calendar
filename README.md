@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241111 - 旷野里的第一片雪花
+## 20241112 - 拱门之下
 
-###### 班夫国家公园的日落，阿尔伯塔省，加拿大
+###### 透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国
 
-![](https://www.bing.com/th?id=OHR.Banff24_ZH-CN1156176817_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_UHD.jpg)
 
 ## 归档
 
