@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241112 - 拱门之下
+## 20241113 - 海中的“狮子王”
 
-###### 透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国
+###### 巨型海藻森林中的加州海狮，下加利福尼亚，墨西哥
 
-![](https://www.bing.com/th?id=OHR.CoveArch_ZH-CN1281140578_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KelpForest_ZH-CN2357269491_UHD.jpg)
 
 ## 归档
 
