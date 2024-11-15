@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241114 - 悬崖边的故事
+## 20241115 - 愿望随灯起飞
 
-###### 马纳罗拉，五渔村国家公园，利古里亚，意大利
+###### 义蓬灯节 ，清迈，泰国
 
-![](https://www.bing.com/th?id=OHR.ManarolaItaly_ZH-CN2837915120_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_UHD.jpg)
 
 ## 归档
 
