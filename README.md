@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241115 - 愿望随灯起飞
+## 20241116 - 泥土、大海和天空
 
-###### 义蓬灯节 ，清迈，泰国
+###### 瓦登海沿岸，莫德加特附近，弗里斯兰，荷兰
 
-![](https://www.bing.com/th?id=OHR.YiPengLanterns_ZH-CN5613043353_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FrieslandNetherlands_ZH-CN5952456898_UHD.jpg)
 
 ## 归档
 
