@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241117 - 苏格兰高地的马鹿
+## 20241118 - 一直指引着方向
 
-###### 加里东林中的马鹿，阿夫力谷，苏格兰高地
+###### 波斯考尔灯塔，南威尔士，英国
 
-![](https://www.bing.com/th?id=OHR.RedStag_ZH-CN6403546321_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_ZH-CN6655235820_UHD.jpg)
 
 ## 归档
 
