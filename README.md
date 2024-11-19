@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241118 - 一直指引着方向
+## 20241119 - 令人震撼的拱门
 
-###### 波斯考尔灯塔，南威尔士，英国
+###### 塔斯曼拱门，塔斯马尼亚州，澳大利亚
 
-![](https://www.bing.com/th?id=OHR.PorthcawlLighthouse_ZH-CN6655235820_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_UHD.jpg)
 
 ## 归档
 
