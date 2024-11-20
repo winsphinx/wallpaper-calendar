@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241119 - 令人震撼的拱门
+## 20241120 - 加龙河上的历史通道
 
-###### 塔斯曼拱门，塔斯马尼亚州，澳大利亚
+###### 皮埃尔桥，波尔多，法国
 
-![](https://www.bing.com/th?id=OHR.TasmansArch_ZH-CN7062784426_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PontBordeaux_ZH-CN7656263575_UHD.jpg)
 
 ## 归档
 
