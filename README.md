@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241122 - 悬崖上的城堡
+## 20241123 - 大自然的密码
 
-###### 萨夫拉城堡，瓜达拉哈拉省，西班牙
+###### 多叶芦荟，袋鼠岛，澳大利亚
 
-![](https://www.bing.com/th?id=OHR.ZafraCastle_ZH-CN8791148758_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_UHD.jpg)
 
 ## 归档
 
