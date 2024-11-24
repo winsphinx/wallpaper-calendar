@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241123 - 大自然的密码
+## 20241124 - 潮汐与暮色
 
-###### 多叶芦荟，袋鼠岛，澳大利亚
+###### 州立公园，索诺玛海岸，美国加利福尼亚州
 
-![](https://www.bing.com/th?id=OHR.FibonacciAloe_ZH-CN8974137481_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SonomaCoast_ZH-CN9187330701_UHD.jpg)
 
 ## 归档
 
