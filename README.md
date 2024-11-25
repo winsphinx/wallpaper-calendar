@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241124 - 潮汐与暮色
+## 20241125 - 野生动物的生活
 
-###### 州立公园，索诺玛海岸，美国加利福尼亚州
+###### 马赛长颈鹿，安波塞利国家公园，肯尼亚
 
-![](https://www.bing.com/th?id=OHR.SonomaCoast_ZH-CN9187330701_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_UHD.jpg)
 
 ## 归档
 
