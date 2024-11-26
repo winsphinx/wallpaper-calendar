@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241125 - 野生动物的生活
+## 20241126 - 有数百年历史的橄榄树
 
-###### 马赛长颈鹿，安波塞利国家公园，肯尼亚
+###### 橄榄树林，伊特里亚山谷，普利亚，意大利
 
-![](https://www.bing.com/th?id=OHR.AmboseliGiraffes_ZH-CN9276085602_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_UHD.jpg)
 
 ## 归档
 
