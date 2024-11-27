@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241126 - 有数百年历史的橄榄树
+## 20241127 - 巨人的安息之地
 
-###### 橄榄树林，伊特里亚山谷，普利亚，意大利
+###### 秋天的巨人之墓，布永市，比利时
 
-![](https://www.bing.com/th?id=OHR.TrulliGrove_ZH-CN9519400567_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_UHD.jpg)
 
 ## 归档
 
