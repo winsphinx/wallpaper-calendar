@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241127 - 巨人的安息之地
+## 20241128 - 山峰从云层中探出头来
 
-###### 秋天的巨人之墓，布永市，比利时
+###### 日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大
 
-![](https://www.bing.com/th?id=OHR.SemoisRiver_ZH-CN0801669014_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_UHD.jpg)
 
 ## 归档
 
