@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241128 - 山峰从云层中探出头来
+## 20241129 - 时间与潮汐之岛
 
-###### 日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大
+###### 圣米歇尔山，诺曼底，法国
 
-![](https://www.bing.com/th?id=OHR.AssiniboineTS_ZH-CN9936042562_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MtStMichel_ZH-CN1232662142_UHD.jpg)
 
 ## 归档
 
