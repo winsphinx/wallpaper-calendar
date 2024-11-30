@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241129 - 时间与潮汐之岛
+## 20241130 - 探秘苏格兰的遗产
 
-###### 圣米歇尔山，诺曼底，法国
+###### 基尔亨城堡倒映在奥湖中，阿盖尔-比特郡，苏格兰
 
-![](https://www.bing.com/th?id=OHR.MtStMichel_ZH-CN1232662142_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KilchurnAutumn_ZH-CN2547959725_UHD.jpg)
 
 ## 归档
 
