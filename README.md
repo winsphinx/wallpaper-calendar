@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20241130 - 探秘苏格兰的遗产
+## 20241201 - 保护最后一片大荒野
 
-###### 基尔亨城堡倒映在奥湖中，阿盖尔-比特郡，苏格兰
+###### 南极洲的冰山
 
-![](https://www.bing.com/th?id=OHR.KilchurnAutumn_ZH-CN2547959725_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IcebergsAntarctica_ZH-CN2942178295_UHD.jpg)
 
 ## 归档
 
+| [202412](/202412/README.md)
 | [202411](/202411/README.md)
 | [202410](/202410/README.md)
 | [202409](/202409/README.md)
