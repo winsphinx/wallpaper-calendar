@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241201 - 保护最后一片大荒野
+## 20241202 - 狂野的眼神
 
-###### 南极洲的冰山
+###### 雌性驼鹿，德纳里国家公园，阿拉斯加州，美国
 
-![](https://www.bing.com/th?id=OHR.IcebergsAntarctica_ZH-CN2942178295_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SnowMoose_ZH-CN3364979952_UHD.jpg)
 
 ## 归档
 
