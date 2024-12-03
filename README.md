@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241202 - 狂野的眼神
+## 20241203 - 柱式遗产
 
-###### 雌性驼鹿，德纳里国家公园，阿拉斯加州，美国
+###### Sattais Katcheri，琥珀堡，拉贾斯坦邦，印度
 
-![](https://www.bing.com/th?id=OHR.SnowMoose_ZH-CN3364979952_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_UHD.jpg)
 
 ## 归档
 
