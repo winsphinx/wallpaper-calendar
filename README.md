@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241203 - 柱式遗产
+## 20241204 - 濒临灭绝
 
-###### Sattais Katcheri，琥珀堡，拉贾斯坦邦，印度
+###### 雄性白犀，纳库鲁湖，肯尼亚
 
-![](https://www.bing.com/th?id=OHR.JaipurFort_ZH-CN3891828158_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_UHD.jpg)
 
 ## 归档
 
