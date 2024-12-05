@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241204 - 濒临灭绝
+## 20241205 - 石灰华塔的崛起
 
-###### 雄性白犀，纳库鲁湖，肯尼亚
+###### 莫诺湖的石灰华地层，加利福尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.RhinosKenya_ZH-CN4422118541_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MonoTufa_ZH-CN4998806540_UHD.jpg)
 
 ## 归档
 
