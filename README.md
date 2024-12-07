@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241206 - 一路通往童话之路
+## 20241207 - 自然奇观的蓝色魅力
 
-###### 鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国
+###### 里约热内卢州的阿拉亚尔多卡博，巴西
 
-![](https://www.bing.com/th?id=OHR.GreaterSnow2024_ZH-CN5929129591_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_UHD.jpg)
 
 ## 归档
 
