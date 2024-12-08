@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241207 - 自然奇观的蓝色魅力
+## 20241208 - 巴黎圣母院再度回归
 
-###### 里约热内卢州的阿拉亚尔多卡博，巴西
+###### 巴黎圣母院，巴黎，法国
 
-![](https://www.bing.com/th?id=OHR.ArraialdoCabo_ZH-CN6202620711_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ReopeningNotreDame_ZH-CN6512133762_UHD.jpg)
 
 ## 归档
 
