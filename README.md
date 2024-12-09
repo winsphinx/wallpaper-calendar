@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241208 - 巴黎圣母院再度回归
+## 20241209 - 态度和高度
 
-###### 巴黎圣母院，巴黎，法国
+###### 两只原驼,托雷斯德尔帕恩国家公园 , 智利
 
-![](https://www.bing.com/th?id=OHR.ReopeningNotreDame_ZH-CN6512133762_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_UHD.jpg)
 
 ## 归档
 
