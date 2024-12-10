@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241209 - 态度和高度
+## 20241210 - 世界的尽头？不完全是
 
-###### 两只原驼,托雷斯德尔帕恩国家公园 , 智利
+###### 被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰
 
-![](https://www.bing.com/th?id=OHR.GuanacosChile_ZH-CN7011761081_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_UHD.jpg)
 
 ## 归档
 
