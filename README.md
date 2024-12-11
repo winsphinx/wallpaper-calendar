@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241210 - 世界的尽头？不完全是
+## 20241211 - 山峰的“胜利三重奏”
 
-###### 被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰
+###### 拉瓦雷多三峰山,意大利
 
-![](https://www.bing.com/th?id=OHR.CornwallSnow_ZH-CN8407245245_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_UHD.jpg)
 
 ## 归档
 
