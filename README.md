@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241211 - 山峰的“胜利三重奏”
+## 20241212 - 为节日做好准备
 
-###### 拉瓦雷多三峰山,意大利
+###### 一品红或圣诞花
 
-![](https://www.bing.com/th?id=OHR.DolomitesSky_ZH-CN9299967785_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_UHD.jpg)
 
 ## 归档
 
