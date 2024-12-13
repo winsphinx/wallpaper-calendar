@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241212 - 为节日做好准备
+## 20241213 - 圣斯蒂芬大教堂的降临节
 
-###### 一品红或圣诞花
+###### 圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利
 
-![](https://www.bing.com/th?id=OHR.WildPoinsettia_ZH-CN7984548709_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_UHD.jpg)
 
 ## 归档
 
