@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241213 - 圣斯蒂芬大教堂的降临节
+## 20241214 - "谁"这么说？
 
-###### 圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利
+###### 猛鸮，加拿大
 
-![](https://www.bing.com/th?id=OHR.ChristmasBudapest_ZH-CN8197439971_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_UHD.jpg)
 
 ## 归档
 
