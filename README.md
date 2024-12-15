@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241214 - "谁"这么说？
+## 20241215 - 泪水之湖
 
-###### 猛鸮，加拿大
+###### 米苏里纳湖，多洛米蒂山脉，意大利
 
-![](https://www.bing.com/th?id=OHR.NorthernHawkOwl_ZH-CN8408027305_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MisurinaLake_ZH-CN0744434715_UHD.jpg)
 
 ## 归档
 
