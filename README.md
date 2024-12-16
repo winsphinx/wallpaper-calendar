@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241215 - 泪水之湖
+## 20241216 - 闪烁的街道和冰峰
 
-###### 米苏里纳湖，多洛米蒂山脉，意大利
+###### 萨尔茨堡，奥地利
 
-![](https://www.bing.com/th?id=OHR.MisurinaLake_ZH-CN0744434715_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SalzburgSnow_ZH-CN0964131994_UHD.jpg)
 
 ## 归档
 
