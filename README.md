@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241216 - 闪烁的街道和冰峰
+## 20241217 - 值得爱慕的海岸
 
-###### 萨尔茨堡，奥地利
+###### 传统红色渔民小屋，雷讷峡湾岸边，挪威
 
-![](https://www.bing.com/th?id=OHR.SalzburgSnow_ZH-CN0964131994_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ReinefjordenNorway_ZH-CN1198843758_UHD.jpg)
 
 ## 归档
 
