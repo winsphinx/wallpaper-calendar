@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241217 - 值得爱慕的海岸
+## 20241218 - 壮观的象群队伍
 
-###### 传统红色渔民小屋，雷讷峡湾岸边，挪威
+###### 印度吉姆科比特国家公园的大象，印度
 
-![](https://www.bing.com/th?id=OHR.ReinefjordenNorway_ZH-CN1198843758_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MorningElephants_ZH-CN1418579765_UHD.jpg)
 
 ## 归档
 
