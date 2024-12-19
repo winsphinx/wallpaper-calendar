@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241218 - 壮观的象群队伍
+## 20241219 - 闪烁的小镇
 
-###### 印度吉姆科比特国家公园的大象，印度
+###### 锡比乌圣诞市场，罗马尼亚
 
-![](https://www.bing.com/th?id=OHR.MorningElephants_ZH-CN1418579765_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_UHD.jpg)
 
 ## 归档
 
