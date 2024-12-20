@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241219 - 闪烁的小镇
+## 20241220 - 圣诞老人要来镇上了
 
-###### 锡比乌圣诞市场，罗马尼亚
+###### 罗瓦涅米圣诞老人村，拉普兰，芬兰
 
-![](https://www.bing.com/th?id=OHR.SibiuRomania_ZH-CN1631942857_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SantaClausVillage_ZH-CN1839275027_UHD.jpg)
 
 ## 归档
 
