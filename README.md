@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241220 - 圣诞老人要来镇上了
+## 20241221 - 极致的冬日景色
 
-###### 罗瓦涅米圣诞老人村，拉普兰，芬兰
+###### 满拉水库的雪景，日喀则，中国西藏自治区
 
-![](https://www.bing.com/th?id=OHR.SantaClausVillage_ZH-CN1839275027_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WinterSolstice2024_ZH-CN2045153949_UHD.jpg)
 
 ## 归档
 
