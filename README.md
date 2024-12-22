@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241221 - 极致的冬日景色
+## 20241222 - 冲浪、沙滩和圣诞老人
 
-###### 满拉水库的雪景，日喀则，中国西藏自治区
+###### 水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.WinterSolstice2024_ZH-CN2045153949_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_UHD.jpg)
 
 ## 归档
 
