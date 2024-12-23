@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241222 - 冲浪、沙滩和圣诞老人
+## 20241223 - 准备好发泄一些压力了吗？
 
-###### 水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国
+###### 钏路的两只丹顶鹤，北海道，日本
 
-![](https://www.bing.com/th?id=OHR.CrystalPier_ZH-CN2256372880_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FestivusCranes_ZH-CN2464862059_UHD.jpg)
 
 ## 归档
 
