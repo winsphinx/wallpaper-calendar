@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241223 - 准备好发泄一些压力了吗？
+## 20241224 - 祝你圣诞快乐！
 
-###### 钏路的两只丹顶鹤，北海道，日本
+###### 德国圣诞市场
 
-![](https://www.bing.com/th?id=OHR.FestivusCranes_ZH-CN2464862059_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SantaSnowglobe_ZH-CN2671421527_UHD.jpg)
 
 ## 归档
 
