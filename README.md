@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241224 - 祝你圣诞快乐！
+## 20241225 - 传说中的风景
 
-###### 德国圣诞市场
+###### 科瓦东加湖，阿斯图里亚斯，西班牙
 
-![](https://www.bing.com/th?id=OHR.SantaSnowglobe_ZH-CN2671421527_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CovadongaWinter_ZH-CN2873340163_UHD.jpg)
 
 ## 归档
 
