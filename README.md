@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241225 - 传说中的风景
+## 20241226 - 节日还在继续
 
-###### 科瓦东加湖，阿斯图里亚斯，西班牙
+###### 莫斯霍尔港的圣诞灯饰，康沃尔，英格兰
 
-![](https://www.bing.com/th?id=OHR.CovadongaWinter_ZH-CN2873340163_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MouseholeXmas_ZH-CN3079184443_UHD.jpg)
 
 ## 归档
 
