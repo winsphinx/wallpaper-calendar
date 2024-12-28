@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241227 - 冰雪倒影和积雪覆盖的群峰
+## 20241228 - 保护海洋生物——绿海龟
 
-###### 布莱德湖，斯洛文尼亚
+###### 一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚
 
-![](https://www.bing.com/th?id=OHR.LakeBledSnow_ZH-CN4118056813_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CoralTurtle_ZH-CN4771437860_UHD.jpg)
 
 ## 归档
 
