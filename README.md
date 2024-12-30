@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20241229 - 圣山之上
+## 20241230 - 四季皆美的公园
 
-###### 婆罗浮屠大佛寺，爪哇岛，印度尼西亚
+###### 多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公园，塔斯马尼亚，澳大利亚
 
-![](https://www.bing.com/th?id=OHR.BorobudurBells_ZH-CN5291511365_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountFieldNP_ZH-CN6004420782_UHD.jpg)
 
 ## 归档
 
