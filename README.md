@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20241231 - 新年快乐！
+## 20250101 - 过一个冰雪元旦！
 
-###### 国会山上空的烟花，渥太华，加拿大
+###### 在北极玩耍的北极熊
 
-![](https://www.bing.com/th?id=OHR.CANYE24_ZH-CN3884754296_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_UHD.jpg)
 
 ## 归档
 
+| [202501](/202501/README.md)
 | [202412](/202412/README.md)
 | [202411](/202411/README.md)
 | [202410](/202410/README.md)
