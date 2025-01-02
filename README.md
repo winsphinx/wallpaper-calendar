@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250101 - 过一个冰雪元旦！
+## 20250102 - 熠熠生辉的村庄
 
-###### 在北极玩耍的北极熊
+###### 阿尔德兹村上空的星轨，格劳宾登州，瑞士
 
-![](https://www.bing.com/th?id=OHR.PolarBearSwim_ZH-CN1000349057_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_UHD.jpg)
 
 ## 归档
 
