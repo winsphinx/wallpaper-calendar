@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250102 - 熠熠生辉的村庄
+## 20250103 - 尽享欢乐时光
 
-###### 阿尔德兹村上空的星轨，格劳宾登州，瑞士
+###### 英国拉德克里夫图书馆和万灵学院，牛津大学，英格兰
 
-![](https://www.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_UHD.jpg)
 
 ## 归档
 
