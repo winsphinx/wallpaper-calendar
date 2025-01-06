@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250105 - 树梢上的焦点
+## 20250106 - 神圣的深渊
 
-###### 希莫加的紫红头鹦鹉，卡纳塔克邦，印度
+###### 被水淹没的地下室，圣弗朗西斯大教堂，拉文纳，意大利
 
-![](https://www.bing.com/th?id=OHR.PlumParakeet_ZH-CN0311942558_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RavennaBasilica_ZH-CN1406474730_UHD.jpg)
 
 ## 归档
 
