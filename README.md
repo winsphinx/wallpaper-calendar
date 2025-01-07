@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250106 - 神圣的深渊
+## 20250107 - 岩石与滚石
 
-###### 被水淹没的地下室，圣弗朗西斯大教堂，拉文纳，意大利
+###### 日落时的摩拉基大圆石，南岛，新西兰
 
-![](https://www.bing.com/th?id=OHR.RavennaBasilica_ZH-CN1406474730_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_UHD.jpg)
 
 ## 归档
 
