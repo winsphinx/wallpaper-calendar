@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250107 - 岩石与滚石
+## 20250108 - 银装素裹，巍峨壮丽
 
-###### 日落时的摩拉基大圆石，南岛，新西兰
+###### 被雪覆盖的长城，中国
 
-![](https://www.bing.com/th?id=OHR.BouldersNZ_ZH-CN6750253580_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_UHD.jpg)
 
 ## 归档
 
