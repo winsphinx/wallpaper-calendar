@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250108 - 银装素裹，巍峨壮丽
+## 20250109 - 变换的地平线
 
-###### 被雪覆盖的长城，中国
+###### 苏丝斯黎沙丘，纳米布沙漠，纳米比亚
 
-![](https://www.bing.com/th?id=OHR.GreatWallStairs_ZH-CN4045949792_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NamibiaDunes_ZH-CN5102483490_UHD.jpg)
 
 ## 归档
 
