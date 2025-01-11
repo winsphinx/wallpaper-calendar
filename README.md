@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250110 - 冰层中气泡奇观
+## 20250111 - 旧时代的古老拱门
 
-###### 亚伯拉罕湖，阿尔伯塔省，加拿大
+###### 梅克内斯的Heri es-Swani，摩洛哥
 
-![](https://www.bing.com/th?id=OHR.BubbleLake_ZH-CN7146244555_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MeknesMorocco_ZH-CN7953910585_UHD.jpg)
 
 ## 归档
 
