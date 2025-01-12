@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250111 - 旧时代的古老拱门
+## 20250112 - 深海中的锐利目光
 
-###### 梅克内斯的Heri es-Swani，摩洛哥
+###### 大堡礁的宝石大眼鲷鱼，澳大利亚
 
-![](https://www.bing.com/th?id=OHR.MeknesMorocco_ZH-CN7953910585_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CrescentTail_ZH-CN8283248964_UHD.jpg)
 
 ## 归档
 
