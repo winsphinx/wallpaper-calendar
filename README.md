@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250112 - 深海中的锐利目光
+## 20250113 - “威尔士”祝你新年快乐！
 
-###### 大堡礁的宝石大眼鲷鱼，澳大利亚
+###### 小屋和特尔莫尔灯塔，兰德温岛，威尔士，英国
 
-![](https://www.bing.com/th?id=OHR.CrescentTail_ZH-CN8283248964_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CoastalWales_ZH-CN9113929287_UHD.jpg)
 
 ## 归档
 
