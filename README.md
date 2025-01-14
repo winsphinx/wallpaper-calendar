@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250113 - “威尔士”祝你新年快乐！
+## 20250114 - 宁静之地
 
-###### 小屋和特尔莫尔灯塔，兰德温岛，威尔士，英国
+###### Village of Zahara de la Sierra, Cádiz province, Spain
 
-![](https://www.bing.com/th?id=OHR.CoastalWales_ZH-CN9113929287_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CadizSpain_ZH-CN0032172399_UHD.jpg)
 
 ## 归档
 
