@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250114 - 宁静之地
+## 20250115 - 魔鬼与自然的气息
 
-###### Village of Zahara de la Sierra, Cádiz province, Spain
+###### Pointe du Diable，圣皮埃尔，留尼汪岛
 
-![](https://www.bing.com/th?id=OHR.CadizSpain_ZH-CN0032172399_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PointeDiable_ZH-CN0610493136_UHD.jpg)
 
 ## 归档
 
