@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250116 - 诞生于火，历久弥坚
+## 20250117 - 完美的囊袋
 
-###### 尖峰国家公园的高峰步道，圣贝尼托县，加利福尼亚州，美国
+###### 褐鹈鹕，圣地亚哥，加利福尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.PinnaclesPeaks_ZH-CN1603877182_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PelicanPortrait_ZH-CN1928504597_UHD.jpg)
 
 ## 归档
 
