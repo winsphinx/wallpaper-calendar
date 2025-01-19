@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250118 - 1,001座白色沙丘
+## 20250119 - 一座适合神居住的石窟
 
-###### 白沙国家公园的日落，新墨西哥州，美国
+###### 海王星石窟，撒丁岛， 意大利
 
-![](https://www.bing.com/th?id=OHR.WhiteSandsNP_ZH-CN2517618394_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_UHD.jpg)
 
 ## 归档
 
