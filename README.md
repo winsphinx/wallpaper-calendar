@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250119 - 一座适合神居住的石窟
+## 20250120 - 松鼠之趣
 
-###### 海王星石窟，撒丁岛， 意大利
+###### 欧亚红松鼠与毒蘑菇
 
-![](https://www.bing.com/th?id=OHR.NeptunesGrotto_ZH-CN3092540170_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_UHD.jpg)
 
 ## 归档
 
