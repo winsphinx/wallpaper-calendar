@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250120 - 松鼠之趣
+## 20250121 - 迷人的海湾风光
 
-###### 欧亚红松鼠与毒蘑菇
+###### 俯瞰那不勒斯湾和维苏威火山，意大利
 
-![](https://www.bing.com/th?id=OHR.DutchSquirrel_ZH-CN3896893818_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_UHD.jpg)
 
 ## 归档
 
