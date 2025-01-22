@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250121 - 迷人的海湾风光
+## 20250122 - 在失落之城发现美
 
-###### 俯瞰那不勒斯湾和维苏威火山，意大利
+###### 代尔修道院，佩特拉，约旦
 
-![](https://www.bing.com/th?id=OHR.NapoliPizza_ZH-CN4698906448_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_UHD.jpg)
 
 ## 归档
 
