@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250122 - 在失落之城发现美
+## 20250123 - 电影、山脉和魔法
 
-###### 代尔修道院，佩特拉，约旦
+###### 黄昏时的鹿谷，帕克城，犹他州，美国
 
-![](https://www.bing.com/th?id=OHR.PetraMonastery_ZH-CN5091189333_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DeerValley_ZH-CN6029262704_UHD.jpg)
 
 ## 归档
 
