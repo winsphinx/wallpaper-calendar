@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250123 - 电影、山脉和魔法
+## 20250124 - 力量沸腾
 
-###### 黄昏时的鹿谷，帕克城，犹他州，美国
+###### 冰岛的史托克间歇泉
 
-![](https://www.bing.com/th?id=OHR.DeerValley_ZH-CN6029262704_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IcelandGeyser_ZH-CN2136665867_UHD.jpg)
 
 ## 归档
 
