@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250124 - 力量沸腾
+## 20250125 - 波尔图的黄金时刻
 
-###### 冰岛的史托克间歇泉
+###### 波尔图，葡萄牙
 
-![](https://www.bing.com/th?id=OHR.IcelandGeyser_ZH-CN2136665867_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_UHD.jpg)
 
 ## 归档
 
