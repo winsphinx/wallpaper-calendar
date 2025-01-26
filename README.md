@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250125 - 波尔图的黄金时刻
+## 20250126 - 优雅地老去
 
-###### 波尔图，葡萄牙
+###### 比利时的欧洲山毛榉森林
 
-![](https://www.bing.com/th?id=OHR.PortoSunset_ZH-CN2388246668_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FrostedBeech_ZH-CN2845716018_UHD.jpg)
 
 ## 归档
 
