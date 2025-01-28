@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250127 - 激发你的好奇心
+## 20250128 - 祝您阖家欢乐，万事如意！
 
-###### 琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国
+###### 夜空中的烟花表演，长沙，湖南省，中国
 
-![](https://www.bing.com/th?id=OHR.CanyonSnow_ZH-CN3910130781_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LunarNewYearEve25Y_ZH-CN6059625695_UHD.jpg)
 
 ## 归档
 
