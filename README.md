@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250128 - 祝您阖家欢乐，万事如意！
+## 20250129 - 春节快乐！
 
-###### 夜空中的烟花表演，长沙，湖南省，中国
+###### 南京夫子庙的春节许愿牌，江苏省，中国
 
-![](https://www.bing.com/th?id=OHR.LunarNewYearEve25Y_ZH-CN6059625695_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpringFestival25Y_ZH-CN6133182159_UHD.jpg)
 
 ## 归档
 
