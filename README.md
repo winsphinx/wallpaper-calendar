@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250129 - 春节快乐！
+## 20250130 - 再次冲向战斗
 
-###### 南京夫子庙的春节许愿牌，江苏省，中国
+###### 罗兰多山口，奥德萨和佩迪多山国家公园，西班牙
 
-![](https://www.bing.com/th?id=OHR.SpringFestival25Y_ZH-CN6133182159_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OrdesaSpain_ZH-CN1445868068_UHD.jpg)
 
 ## 归档
 
