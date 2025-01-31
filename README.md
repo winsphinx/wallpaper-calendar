@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250130 - 再次冲向战斗
+## 20250131 - 一点都不普通
 
-###### 罗兰多山口，奥德萨和佩迪多山国家公园，西班牙
+###### 日出时的平原斑马，莫卡拉国家公园，南非
 
-![](https://www.bing.com/th?id=OHR.OrdesaSpain_ZH-CN1445868068_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PlainsZebra_ZH-CN1989542307_UHD.jpg)
 
 ## 归档
 
