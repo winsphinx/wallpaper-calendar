@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20250131 - 一点都不普通
+## 20250201 - 雪与石
 
-###### 日出时的平原斑马，莫卡拉国家公园，南非
+###### 国王岩堡垒 , 瑞士撒克逊, 德国
 
-![](https://www.bing.com/th?id=OHR.PlainsZebra_ZH-CN1989542307_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FestungKonigsteinElbsandsteingebirge_ZH-CN2192655745_UHD.jpg)
 
 ## 归档
 
+| [202502](/202502/README.md)
 | [202501](/202501/README.md)
 | [202412](/202412/README.md)
 | [202411](/202411/README.md)
