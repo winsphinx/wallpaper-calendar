@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250201 - 雪与石
+## 20250202 - 天气预报还是运气预报？
 
-###### 国王岩堡垒 , 瑞士撒克逊, 德国
+###### 年幼的高山土拨鼠
 
-![](https://www.bing.com/th?id=OHR.FestungKonigsteinElbsandsteingebirge_ZH-CN2192655745_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AustriaMarmot_ZH-CN2303743586_UHD.jpg)
 
 ## 归档
 
