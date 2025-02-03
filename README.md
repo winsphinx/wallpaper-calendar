@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250202 - 天气预报还是运气预报？
+## 20250203 - 春光明媚的日子
 
-###### 年幼的高山土拨鼠
+###### 盛开的樱花树上的红头长尾山雀
 
-![](https://www.bing.com/th?id=OHR.AustriaMarmot_ZH-CN2303743586_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeginningofSpring25Y_ZH-CN7356156800_UHD.jpg)
 
 ## 归档
 
