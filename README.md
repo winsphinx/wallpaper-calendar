@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250203 - 春光明媚的日子
+## 20250204 - 云端漫步
 
-###### 盛开的樱花树上的红头长尾山雀
+###### 金桥，巴拿山，岘港，越南
 
-![](https://www.bing.com/th?id=OHR.BeginningofSpring25Y_ZH-CN7356156800_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_UHD.jpg)
 
 ## 归档
 
