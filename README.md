@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250204 - 云端漫步
+## 20250205 - 对国家遗产的思考
 
-###### 金桥，巴拿山，岘港，越南
+###### 拱门群岛，瓦拉里基海滩，南岛，新西兰
 
-![](https://www.bing.com/th?id=OHR.GoldenBridge_ZH-CN2910740727_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ScottishSheep_ZH-CN3051181797_UHD.jpg)
 
 ## 归档
 
