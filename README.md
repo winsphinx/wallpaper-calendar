@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250205 - 对国家遗产的思考
+## 20250206 - 对国家遗产的思考
 
 ###### 拱门群岛，瓦拉里基海滩，南岛，新西兰
 
-![](https://www.bing.com/th?id=OHR.ScottishSheep_ZH-CN3051181797_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_UHD.jpg)
 
 ## 归档
 
