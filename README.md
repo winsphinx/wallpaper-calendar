@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250206 - 对国家遗产的思考
+## 20250207 - 沉浸在蓝调时分
 
-###### 拱门群岛，瓦拉里基海滩，南岛，新西兰
+###### 特隆赫姆的蓝色时刻，挪威
 
-![](https://www.bing.com/th?id=OHR.WhararikiBeach_ZH-CN7232913389_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BlueNorway_ZH-CN7489077966_UHD.jpg)
 
 ## 归档
 
