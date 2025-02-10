@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250209 - 值得深思的高地
+## 20250210 - 在伞下
 
-###### 阿尔斯特罗姆角，鲍威尔湖，犹他州，美国
+###### 雨伞艺术装置，博罗市场，伦敦，英国
 
-![](https://www.bing.com/th?id=OHR.AlstromPoint_ZH-CN7844819126_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_UHD.jpg)
 
 ## 归档
 
