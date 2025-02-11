@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250210 - 在伞下
+## 20250211 - 历史的守望之眼
 
-###### 雨伞艺术装置，博罗市场，伦敦，英国
+###### 云冈石窟，大同，山西省，中国
 
-![](https://www.bing.com/th?id=OHR.UmbrellaDay_ZH-CN8024305066_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_UHD.jpg)
 
 ## 归档
 
