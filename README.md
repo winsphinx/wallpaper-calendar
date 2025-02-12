@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250211 - 历史的守望之眼
+## 20250212 - 喜气洋洋的元宵节
 
-###### 云冈石窟，大同，山西省，中国
+###### 上海豫园的灯会，元宵节，上海市，中国
 
-![](https://www.bing.com/th?id=OHR.YungangGrottoes_ZH-CN8275054060_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LanterFestival25Y_ZH-CN8547998003_UHD.jpg)
 
 ## 归档
 
