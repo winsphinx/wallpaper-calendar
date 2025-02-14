@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250213 - 大地之盐
+## 20250214 - 瞧这对恩爱的情侣
 
-###### 泰瑞尔湖，维多利亚州，澳大利亚
+###### 两只麦哲伦企鹅，福克兰群岛
 
-![](https://www.bing.com/th?id=OHR.LakeTyrrell_ZH-CN8860948292_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PenguinLove_ZH-CN9124008164_UHD.jpg)
 
 ## 归档
 
