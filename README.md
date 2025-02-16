@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250215 - 冰雪奇景
+## 20250216 - 守护海洋巨兽
 
-###### 三十槌冰柱，秩父市，日本
+###### 座头鲸妈妈和宝宝，汤加
 
-![](https://www.bing.com/th?id=OHR.Misotsuchi2025_ZH-CN9260395680_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HumpbackMother_ZH-CN9453300759_UHD.jpg)
 
 ## 归档
 
