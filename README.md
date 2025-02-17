@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250216 - 守护海洋巨兽
+## 20250217 - 冰雪边界
 
-###### 座头鲸妈妈和宝宝，汤加
+###### Coll d'Ares，加泰罗尼亚比利牛斯​​山脉
 
-![](https://www.bing.com/th?id=OHR.HumpbackMother_ZH-CN9453300759_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CatalanPyrenees_ZH-CN9699602584_UHD.jpg)
 
 ## 归档
 
