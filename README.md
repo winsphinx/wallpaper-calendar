@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250217 - 冰雪边界
+## 20250218 - 无尽的蓝色
 
-###### Coll d'Ares，加泰罗尼亚比利牛斯​​山脉
+###### 大蓝洞，伯利兹
 
-![](https://www.bing.com/th?id=OHR.CatalanPyrenees_ZH-CN9699602584_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BlueBelize_ZH-CN9875040666_UHD.jpg)
 
 ## 归档
 
