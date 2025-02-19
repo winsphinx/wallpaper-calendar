@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250218 - 无尽的蓝色
+## 20250219 - 水獭的另一面
 
-###### 大蓝洞，伯利兹
+###### 欧亚水獭，莱利斯塔德，荷兰
 
-![](https://www.bing.com/th?id=OHR.BlueBelize_ZH-CN9875040666_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IceHoleOtter_ZH-CN0106321041_UHD.jpg)
 
 ## 归档
 
