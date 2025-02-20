@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250219 - 水獭的另一面
+## 20250220 - 高贵的双影
 
-###### 欧亚水獭，莱利斯塔德，荷兰
+###### 马鹿，加拿大
 
-![](https://www.bing.com/th?id=OHR.IceHoleOtter_ZH-CN0106321041_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_UHD.jpg)
 
 ## 归档
 
