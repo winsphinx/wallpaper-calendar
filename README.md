@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250220 - 高贵的双影
+## 20250221 - 静水流深的传说
 
-###### 马鹿，加拿大
+###### 希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度
 
-![](https://www.bing.com/th?id=OHR.CanadaDeer_ZH-CN0631345798_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChampakaSarasi_ZH-CN0254940579_UHD.jpg)
 
 ## 归档
 
