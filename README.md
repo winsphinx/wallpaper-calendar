@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250221 - 静水流深的传说
+## 20250222 - 向辉煌迈进
 
-###### 希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度
+###### 圣路易斯拱门, 密苏里州, 美国
 
-![](https://www.bing.com/th?id=OHR.ChampakaSarasi_ZH-CN0254940579_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_UHD.jpg)
 
 ## 归档
 
