@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250222 - 向辉煌迈进
+## 20250223 - 清晨的美好精致
 
-###### 圣路易斯拱门, 密苏里州, 美国
+###### 日出时分的富士山, 河口湖, 日本
 
-![](https://www.bing.com/th?id=OHR.StLouisArch_ZH-CN0442955735_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_UHD.jpg)
 
 ## 归档
 
