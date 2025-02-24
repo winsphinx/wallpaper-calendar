@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250223 - 清晨的美好精致
+## 20250224 - 墨迹与伪装
 
-###### 日出时分的富士山, 河口湖, 日本
+###### 斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚
 
-![](https://www.bing.com/th?id=OHR.MtFujiSunrise_ZH-CN0567499176_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GiantCuttlefish_ZH-CN0670915878_UHD.jpg)
 
 ## 归档
 
