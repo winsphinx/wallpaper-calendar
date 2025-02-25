@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250224 - 墨迹与伪装
+## 20250225 - 风蚀石们的问候
 
-###### 斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚
+###### 砂岩石柱，布莱斯峡谷国家公园，犹他州，美国
 
-![](https://www.bing.com/th?id=OHR.GiantCuttlefish_ZH-CN0670915878_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_UHD.jpg)
 
 ## 归档
 
