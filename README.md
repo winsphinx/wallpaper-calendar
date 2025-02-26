@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250225 - 风蚀石们的问候
+## 20250226 - 苏格兰战略的最佳体现
 
-###### 砂岩石柱，布莱斯峡谷国家公园，犹他州，美国
+###### 莱奇湖上的斯托克尔城堡，阿盖尔郡，苏格兰
 
-![](https://www.bing.com/th?id=OHR.BryceHoodoos_ZH-CN0817211446_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ArgyllStalker_ZH-CN0970395078_UHD.jpg)
 
 ## 归档
 
