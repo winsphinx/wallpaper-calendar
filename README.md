@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250227 - 极地关怀
+## 20250228 - 在虎穴小憩
 
-###### 北极熊幼崽，丘吉尔，马尼托巴省，加拿大
+###### 虎穴寺，不丹
 
-![](https://www.bing.com/th?id=OHR.PolarCub_ZH-CN1179361319_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BhutanMonastery_ZH-CN2469401011_UHD.jpg)
 
 ## 归档
 
