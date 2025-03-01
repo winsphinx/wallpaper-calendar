@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20250228 - 在虎穴小憩
+## 20250301 - 天空之镜
 
-###### 虎穴寺，不丹
+###### 玛琳湖精灵岛上空的北极光，贾斯珀国家公园，加拿大
 
-![](https://www.bing.com/th?id=OHR.BhutanMonastery_ZH-CN2469401011_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaligneLakeJasper_ZH-CN2664289451_UHD.jpg)
 
 ## 归档
 
+| [202503](/202503/README.md)
 | [202502](/202502/README.md)
 | [202501](/202501/README.md)
 | [202412](/202412/README.md)
