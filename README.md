@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250301 - 天空之镜
+## 20250302 - 桉树奇景
 
-###### 玛琳湖精灵岛上空的北极光，贾斯珀国家公园，加拿大
+###### 桉树，梅加龙谷，蓝山山脉国家公园，新南威尔士州，澳大利亚
 
-![](https://www.bing.com/th?id=OHR.MaligneLakeJasper_ZH-CN2664289451_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EucalyptusForest_ZH-CN3052498076_UHD.jpg)
 
 ## 归档
 
