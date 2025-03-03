@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250302 - 桉树奇景
+## 20250303 - 狂热野生
 
-###### 桉树，梅加龙谷，蓝山山脉国家公园，新南威尔士州，澳大利亚
+###### 南黄弯嘴犀鸟，克鲁格国家公园 ，南非
 
-![](https://www.bing.com/th?id=OHR.EucalyptusForest_ZH-CN3052498076_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HornbillPair_ZH-CN3380997666_UHD.jpg)
 
 ## 归档
 
