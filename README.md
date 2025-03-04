@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250303 - 狂热野生
+## 20250304 - 马蒂·格拉斯狂欢节
 
-###### 南黄弯嘴犀鸟，克鲁格国家公园 ，南非
+###### 杰克逊广场，新奥尔良，路易斯安那州，美国
 
-![](https://www.bing.com/th?id=OHR.HornbillPair_ZH-CN3380997666_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MardiGrasJackson_ZH-CN3456301377_UHD.jpg)
 
 ## 归档
 
