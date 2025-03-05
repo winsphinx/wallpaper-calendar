@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250304 - 马蒂·格拉斯狂欢节
+## 20250305 - 丛林探险
 
-###### 杰克逊广场，新奥尔良，路易斯安那州，美国
+###### 俯瞰拷索山林国家公园，素叻府，泰国
 
-![](https://www.bing.com/th?id=OHR.MardiGrasJackson_ZH-CN3456301377_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SuratThani_ZH-CN4797096558_UHD.jpg)
 
 ## 归档
 
