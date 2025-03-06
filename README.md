@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250305 - 丛林探险
+## 20250306 - 岩石间的生存之道
 
-###### 俯瞰拷索山林国家公园，素叻府，泰国
+###### 沙漠大角羊，内华达州火焰谷州立公园，美国
 
-![](https://www.bing.com/th?id=OHR.SuratThani_ZH-CN4797096558_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NevadaBigHorns_ZH-CN5987046965_UHD.jpg)
 
 ## 归档
 
