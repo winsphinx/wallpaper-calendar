@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250306 - 岩石间的生存之道
+## 20250307 - 花开中国
 
-###### 沙漠大角羊，内华达州火焰谷州立公园，美国
+###### 中国的梅花
 
-![](https://www.bing.com/th?id=OHR.NevadaBigHorns_ZH-CN5987046965_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PlumBlossom_ZH-CN5888621119_UHD.jpg)
 
 ## 归档
 
