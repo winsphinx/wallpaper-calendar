@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250307 - 花开中国
+## 20250308 - 原始纯净的自然天堂
 
-###### 中国的梅花
+###### 石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国
 
-![](https://www.bing.com/th?id=OHR.PlumBlossom_ZH-CN5888621119_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WaddenSeaBiosphereReserve_ZH-CN9012125146_UHD.jpg)
 
 ## 归档
 
