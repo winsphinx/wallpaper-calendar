@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250310 - 小睡片刻，再征服世界
+## 20250311 - 大海的非凡造化
 
-###### 在伊沙沙区里正在睡觉的狮子，伊丽莎白女王国家公园，乌干达
+###### 努沙佩尼达岛的破碎海滩, 巴厘岛, 印度尼西亚
 
-![](https://www.bing.com/th?id=OHR.NappingLion_ZH-CN1214312983_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NusaPenida_ZH-CN4934656933_UHD.jpg)
 
 ## 归档
 
