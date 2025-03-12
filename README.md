@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250311 - 大海的非凡造化
+## 20250312 - 屹立不倒
 
-###### 努沙佩尼达岛的破碎海滩, 巴厘岛, 印度尼西亚
+###### 卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国
 
-![](https://www.bing.com/th?id=OHR.NusaPenida_ZH-CN4934656933_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_UHD.jpg)
 
 ## 归档
 
