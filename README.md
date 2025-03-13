@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250312 - 屹立不倒
+## 20250313 - 洒满色彩的欢乐
 
-###### 卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国
+###### 洒红节庆祝活动，斋浦尔，印度
 
-![](https://www.bing.com/th?id=OHR.ChateauLoire_ZH-CN5040147638_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_UHD.jpg)
 
 ## 归档
 
