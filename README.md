@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250313 - 洒满色彩的欢乐
+## 20250314 - 天空中的圆周率
 
-###### 洒红节庆祝活动，斋浦尔，印度
+###### 索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙
 
-![](https://www.bing.com/th?id=OHR.HoliColors_ZH-CN2177185823_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BasqueDolmen_ZH-CN2364777801_UHD.jpg)
 
 ## 归档
 
