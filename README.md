@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250314 - 天空中的圆周率
+## 20250315 - “朋友们，罗马人，同胞们…”
 
-###### 索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙
+###### 罗马广场上的罗马萨图尔诺农神庙，罗马，意大利
 
-![](https://www.bing.com/th?id=OHR.BasqueDolmen_ZH-CN2364777801_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ForumRomanum_ZH-CN5873120178_UHD.jpg)
 
 ## 归档
 
