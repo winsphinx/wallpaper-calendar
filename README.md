@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250315 - “朋友们，罗马人，同胞们…”
+## 20250316 - 回归黑白世界
 
-###### 罗马广场上的罗马萨图尔诺农神庙，罗马，意大利
+###### 雪地里的大熊猫宝宝，中国
 
-![](https://www.bing.com/th?id=OHR.ForumRomanum_ZH-CN5873120178_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PandaSnow_ZH-CN5981854301_UHD.jpg)
 
 ## 归档
 
