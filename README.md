@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250316 - 回归黑白世界
+## 20250317 - 圣帕特里克节的魅力
 
-###### 雪地里的大熊猫宝宝，中国
+###### 塞缪尔·贝克特桥, 都柏林, 爱尔兰
 
-![](https://www.bing.com/th?id=OHR.PandaSnow_ZH-CN5981854301_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeckettBridge_ZH-CN6206942429_UHD.jpg)
 
 ## 归档
 
