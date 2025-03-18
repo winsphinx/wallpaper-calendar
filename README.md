@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250317 - 圣帕特里克节的魅力
+## 20250318 - 漩涡般的心境
 
-###### 塞缪尔·贝克特桥, 都柏林, 爱尔兰
+###### 红色岩层，塞多纳，亚利桑那州，美国
 
-![](https://www.bing.com/th?id=OHR.BeckettBridge_ZH-CN6206942429_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SedonaSpring_ZH-CN6305197600_UHD.jpg)
 
 ## 归档
 
