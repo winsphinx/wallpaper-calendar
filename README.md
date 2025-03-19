@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250318 - 漩涡般的心境
+## 20250319 - 伞状捕猎术
 
-###### 红色岩层，塞多纳，亚利桑那州，美国
+###### 黑鹭捕鱼，乔贝国家公园，博茨瓦纳
 
-![](https://www.bing.com/th?id=OHR.SedonaSpring_ZH-CN6305197600_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BlackHeron_ZH-CN6764711050_UHD.jpg)
 
 ## 归档
 
