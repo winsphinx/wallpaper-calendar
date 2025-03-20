@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250319 - 伞状捕猎术
+## 20250320 - 春日仙境
 
-###### 黑鹭捕鱼，乔贝国家公园，博茨瓦纳
+###### 美丽盛开的樱花，杭州的春天，中国
 
-![](https://www.bing.com/th?id=OHR.BlackHeron_ZH-CN6764711050_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpringequinoxY25_ZH-CN1635828827_UHD.jpg)
 
 ## 归档
 
