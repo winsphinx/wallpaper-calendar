@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250320 - 春日仙境
+## 20250321 - 树木万岁
 
-###### 美丽盛开的樱花，杭州的春天，中国
+###### 低地雨林上空的薄雾，丹浓谷，沙巴，婆罗洲，马来西亚
 
-![](https://www.bing.com/th?id=OHR.SpringequinoxY25_ZH-CN1635828827_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DanumValley_ZH-CN5786482012_UHD.jpg)
 
 ## 归档
 
