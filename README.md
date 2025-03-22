@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250321 - 树木万岁
+## 20250322 - 水的奇妙世界！
 
-###### 低地雨林上空的薄雾，丹浓谷，沙巴，婆罗洲，马来西亚
+###### 尼特哈天然井水面上的睡莲，图卢姆，墨西哥
 
-![](https://www.bing.com/th?id=OHR.DanumValley_ZH-CN5786482012_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CenoteLilies_ZH-CN5915682591_UHD.jpg)
 
 ## 归档
 
