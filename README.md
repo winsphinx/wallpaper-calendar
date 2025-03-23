@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250322 - 水的奇妙世界！
+## 20250323 - 雷鸣不可阻挡
 
-###### 尼特哈天然井水面上的睡莲，图卢姆，墨西哥
+###### 鲍曼附近日落时分的闪电和风暴云，布拉斯加州，美国
 
-![](https://www.bing.com/th?id=OHR.CenoteLilies_ZH-CN5915682591_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NebraskaStorm_ZH-CN6944682381_UHD.jpg)
 
 ## 归档
 
