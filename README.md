@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250324 - 高草盛宴
+## 20250325 - 色彩斑斓的访客
 
-###### 沙漠象与小象在高高的草丛中觅食，纳米比亚
+###### 向日葵田里的红额金翅雀，德国
 
-![](https://www.bing.com/th?id=OHR.ElephantGrass_ZH-CN7110191053_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GoldfinchSunflower_ZH-CN7276848190_UHD.jpg)
 
 ## 归档
 
