@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250325 - 色彩斑斓的访客
+## 20250326 - 水面下的生命
 
-###### 向日葵田里的红额金翅雀，德国
+###### 水晶河的海牛，佛罗里达州，美国
 
-![](https://www.bing.com/th?id=OHR.GoldfinchSunflower_ZH-CN7276848190_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CrystalManatee_ZH-CN7547286414_UHD.jpg)
 
 ## 归档
 
