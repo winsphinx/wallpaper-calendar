@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250329 - 花海绽放
+## 20250330 - 尽享美景
 
-###### 卡里佐平原国家纪念碑的超级花期，加利福尼亚州，美国
+###### 悉尼港鸟瞰图，新南威尔士州，澳大利亚
 
-![](https://www.bing.com/th?id=OHR.CarrizoBloom_ZH-CN7967467357_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_UHD.jpg)
 
 ## 归档
 
