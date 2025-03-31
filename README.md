@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250330 - 尽享美景
+## 20250331 - 普利亚的“白色之城”
 
-###### 悉尼港鸟瞰图，新南威尔士州，澳大利亚
+###### 黄昏下的奥斯图尼, 普利亚, 意大利
 
-![](https://www.bing.com/th?id=OHR.SydneyHarbour_ZH-CN8119451632_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_UHD.jpg)
 
 ## 归档
 
