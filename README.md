@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20250331 - 普利亚的“白色之城”
+## 20250401 - 蹦跳迎接国家青蛙月
 
-###### 黄昏下的奥斯图尼, 普利亚, 意大利
+###### 树蛙, 哥斯达黎加
 
-![](https://www.bing.com/th?id=OHR.ItalyOstuni_ZH-CN8306220080_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TicanFrog_ZH-CN8949758487_UHD.jpg)
 
 ## 归档
 
+| [202504](/202504/README.md)
 | [202503](/202503/README.md)
 | [202502](/202502/README.md)
 | [202501](/202501/README.md)
