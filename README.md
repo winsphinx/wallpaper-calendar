@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250401 - 蹦跳迎接国家青蛙月
+## 20250402 - 时间的波浪
 
-###### 树蛙, 哥斯达黎加
+###### 凯恩维尔附近荒地的砂岩地层, 犹他州, 美国
 
-![](https://www.bing.com/th?id=OHR.TicanFrog_ZH-CN8949758487_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.UtahBadlands_ZH-CN9174002963_UHD.jpg)
 
 ## 归档
 
