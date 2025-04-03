@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250402 - 时间的波浪
+## 20250403 - 天空无极限
 
-###### 凯恩维尔附近荒地的砂岩地层, 犹他州, 美国
+###### 沃森峰上空的彩虹, 巨人柱国家公园, 亚利桑那州, 美国
 
-![](https://www.bing.com/th?id=OHR.UtahBadlands_ZH-CN9174002963_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SaguaroRainbow_ZH-CN0139056375_UHD.jpg)
 
 ## 归档
 
