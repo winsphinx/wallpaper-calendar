@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250403 - 天空无极限
+## 20250404 - 春和景明
 
-###### 沃森峰上空的彩虹, 巨人柱国家公园, 亚利桑那州, 美国
+###### 苏州古镇风景，江苏省，中国
 
-![](https://www.bing.com/th?id=OHR.SaguaroRainbow_ZH-CN0139056375_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.QingMingY25_ZH-CN9818431198_UHD.jpg)
 
 ## 归档
 
