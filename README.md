@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250404 - 春和景明
+## 20250405 - 朝圣圣胡安·德·加兹特鲁加特
 
-###### 苏州古镇风景，江苏省，中国
+###### 日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙
 
-![](https://www.bing.com/th?id=OHR.QingMingY25_ZH-CN9818431198_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_UHD.jpg)
 
 ## 归档
 
