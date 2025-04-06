@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250405 - 朝圣圣胡安·德·加兹特鲁加特
+## 20250406 - 伦敦最尖锐的地标
 
-###### 日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙
+###### 碎片大厦，伦敦
 
-![](https://www.bing.com/th?id=OHR.GaztelugatxeSunset_ZH-CN0553703567_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ShardLondon2025_ZH-CN0722863055_UHD.jpg)
 
 ## 归档
 
