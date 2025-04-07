@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250406 - 伦敦最尖锐的地标
+## 20250407 - 你好，海狸！
 
-###### 碎片大厦，伦敦
+###### 美洲海狸, Moran, 怀俄明州, 美国
 
-![](https://www.bing.com/th?id=OHR.ShardLondon2025_ZH-CN0722863055_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeaverDay_ZH-CN2889563041_UHD.jpg)
 
 ## 归档
 
