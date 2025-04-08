@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250407 - 你好，海狸！
+## 20250408 - 芬芳清新的春天
 
-###### 美洲海狸, Moran, 怀俄明州, 美国
+###### 春天的水仙花在清晨绽放
 
-![](https://www.bing.com/th?id=OHR.BeaverDay_ZH-CN2889563041_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_UHD.jpg)
 
 ## 归档
 
