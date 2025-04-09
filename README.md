@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250408 - 芬芳清新的春天
+## 20250409 - 在繁星闪耀之前
 
-###### 春天的水仙花在清晨绽放
+###### 纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊
 
-![](https://www.bing.com/th?id=OHR.SpringDaffodils_ZH-CN6737270212_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_UHD.jpg)
 
 ## 归档
 
