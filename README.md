@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250409 - 在繁星闪耀之前
+## 20250410 - 野性本能
 
-###### 纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊
+###### 靠近巢穴的红狐幼崽
 
-![](https://www.bing.com/th?id=OHR.BlueNaxos_ZH-CN7863097040_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LittleFoxes_ZH-CN8622806156_UHD.jpg)
 
 ## 归档
 
