@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250410 - 野性本能
+## 20250411 - 盛放的美好时光
 
-###### 靠近巢穴的红狐幼崽
+###### 郁金香，荷兰
 
-![](https://www.bing.com/th?id=OHR.LittleFoxes_ZH-CN8622806156_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TulipsWindmill_ZH-CN0665142956_UHD.jpg)
 
 ## 归档
 
