@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250411 - 盛放的美好时光
+## 20250412 - 改变世界的108分钟
 
-###### 郁金香，荷兰
+###### 从国际空间站穹顶俯瞰南太平洋
 
-![](https://www.bing.com/th?id=OHR.TulipsWindmill_ZH-CN0665142956_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpaceFlight_ZH-CN0927394503_UHD.jpg)
 
 ## 归档
 
