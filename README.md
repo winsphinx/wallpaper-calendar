@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250413 - 让我们一起庆祝宋干节！
+## 20250414 - 追逐开始！
 
-###### 班克鲁特的唐赛寺，泰国
+###### 圣玛丽亚岛附近的大西洋细吻海豚，亚速尔群岛，葡萄牙
 
-![](https://www.bing.com/th?id=OHR.ThailandPagodas_ZH-CN1143878296_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpottedDolphins_ZH-CN1257100316_UHD.jpg)
 
 ## 归档
 
