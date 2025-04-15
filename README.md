@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250414 - 追逐开始！
+## 20250415 - 梦幻城堡！
 
-###### 圣玛丽亚岛附近的大西洋细吻海豚，亚速尔群岛，葡萄牙
+###### 卡拉奥拉城堡，格拉纳达，西班牙
 
-![](https://www.bing.com/th?id=OHR.SpottedDolphins_ZH-CN1257100316_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CerezoEnFlor_ZH-CN2951543796_UHD.jpg)
 
 ## 归档
 
