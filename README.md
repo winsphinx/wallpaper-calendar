@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250415 - 梦幻城堡！
+## 20250416 - 时光通道
 
-###### 卡拉奥拉城堡，格拉纳达，西班牙
+###### 卡奇纳桥，天然桥国家区，犹他州，美国
 
-![](https://www.bing.com/th?id=OHR.CerezoEnFlor_ZH-CN2951543796_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KachinaBridge_ZH-CN3333793502_UHD.jpg)
 
 ## 归档
 
