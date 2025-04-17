@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250416 - 时光通道
+## 20250417 - 双重戏剧
 
-###### 卡奇纳桥，天然桥国家区，犹他州，美国
+###### 安第斯动冠伞鸟，厄瓜多尔
 
-![](https://www.bing.com/th?id=OHR.KachinaBridge_ZH-CN3333793502_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EcuadorBird_ZH-CN3676173654_UHD.jpg)
 
 ## 归档
 
