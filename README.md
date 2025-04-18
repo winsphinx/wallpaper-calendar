@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250417 - 双重戏剧
+## 20250418 - 纪念历史
 
-###### 安第斯动冠伞鸟，厄瓜多尔
+###### 卡帕多西亚格雷梅国家公园上空的热气球，土耳其
 
-![](https://www.bing.com/th?id=OHR.EcuadorBird_ZH-CN3676173654_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GoremeTurkey_ZH-CN0255739302_UHD.jpg)
 
 ## 归档
 
