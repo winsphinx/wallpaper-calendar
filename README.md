@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250418 - 纪念历史
+## 20250419 - 国家公园周开始了
 
-###### 卡帕多西亚格雷梅国家公园上空的热气球，土耳其
+###### 锡安国家公园，犹他州，美国
 
-![](https://www.bing.com/th?id=OHR.GoremeTurkey_ZH-CN0255739302_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ZionValley_ZH-CN0611524754_UHD.jpg)
 
 ## 归档
 
