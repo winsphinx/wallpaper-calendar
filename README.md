@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250419 - 国家公园周开始了
+## 20250420 - 复活节兔子要来了
 
-###### 锡安国家公园，犹他州，美国
+###### 春天里的野生小兔子
 
-![](https://www.bing.com/th?id=OHR.ZionValley_ZH-CN0611524754_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BunnyLove_ZH-CN1145897965_UHD.jpg)
 
 ## 归档
 
