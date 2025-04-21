@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250420 - 复活节兔子要来了
+## 20250421 - 银河的魔力之下
 
-###### 春天里的野生小兔子
+###### 银河下的约书亚树，加利福尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.BunnyLove_ZH-CN1145897965_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JoshuaStars_ZH-CN1375098210_UHD.jpg)
 
 ## 归档
 
