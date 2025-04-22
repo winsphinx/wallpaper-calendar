@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250421 - 银河的魔力之下
+## 20250422 - 我们的能源，我们的星球
 
-###### 银河下的约书亚树，加利福尼亚州，美国
+###### 大棱镜彩泉，黄石国家公园，怀俄明州，美国
 
-![](https://www.bing.com/th?id=OHR.JoshuaStars_ZH-CN1375098210_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_UHD.jpg)
 
 ## 归档
 
