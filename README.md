@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250422 - 我们的能源，我们的星球
+## 20250423 - 波罗的海的魔力
 
-###### 大棱镜彩泉，黄石国家公园，怀俄明州，美国
+###### 海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国
 
-![](https://www.bing.com/th?id=OHR.YellowstoneSpring_ZH-CN2643482467_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_UHD.jpg)
 
 ## 归档
 
