@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250423 - 波罗的海的魔力
+## 20250424 - 崎岖山峰与野性水域
 
-###### 海利根港斯坦沃德海滩上的沙滩椅，石勒苏益格-荷尔斯泰因州，德国
+###### 阿拉斯加基奈峡湾国家公园尖顶湾, 阿拉斯加州苏厄德, 美国
 
-![](https://www.bing.com/th?id=OHR.BeachChairsSteinwarder_ZH-CN2947390092_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KenaiSpires_ZH-CN3045699778_UHD.jpg)
 
 ## 归档
 
