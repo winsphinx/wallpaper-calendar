@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250424 - 崎岖山峰与野性水域
+## 20250425 - 身着燕尾服的水手们
 
-###### 阿拉斯加基奈峡湾国家公园尖顶湾, 阿拉斯加州苏厄德, 美国
+###### 麦哲伦企鹅, 志愿者角, 福克兰群岛
 
-![](https://www.bing.com/th?id=OHR.KenaiSpires_ZH-CN3045699778_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MagellanicPenguin_ZH-CN3177950090_UHD.jpg)
 
 ## 归档
 
