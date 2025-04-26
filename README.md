@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250425 - 身着燕尾服的水手们
+## 20250426 - 悬崖、洞穴与清澈的水域
 
-###### 麦哲伦企鹅, 志愿者角, 福克兰群岛
+###### 印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大
 
-![](https://www.bing.com/th?id=OHR.MagellanicPenguin_ZH-CN3177950090_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_UHD.jpg)
 
 ## 归档
 
