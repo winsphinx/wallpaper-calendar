@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250426 - 悬崖、洞穴与清澈的水域
+## 20250427 - 就在这里驻足吧
 
-###### 印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大
+###### 红木国家公园和州立公园, 加利福尼亚州, 美国
 
-![](https://www.bing.com/th?id=OHR.BrucePeninsula_ZH-CN3258296517_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_UHD.jpg)
 
 ## 归档
 
