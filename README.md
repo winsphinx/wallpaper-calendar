@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250427 - 就在这里驻足吧
+## 20250428 - 这只黑斑羚正在何处漫游？
 
-###### 红木国家公园和州立公园, 加利福尼亚州, 美国
+###### 莫雷米野生动物保护区的高角羚，博茨瓦纳
 
-![](https://www.bing.com/th?id=OHR.RedwoodGrove_ZH-CN3339576686_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_UHD.jpg)
 
 ## 归档
 
