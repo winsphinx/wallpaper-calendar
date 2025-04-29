@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250428 - 这只黑斑羚正在何处漫游？
+## 20250429 - 几何之美绽放于此
 
-###### 莫雷米野生动物保护区的高角羚，博茨瓦纳
+###### 维朗德里城堡，卢瓦尔河谷，法国
 
-![](https://www.bing.com/th?id=OHR.OrangeImpala_ZH-CN3417660107_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_UHD.jpg)
 
 ## 归档
 
