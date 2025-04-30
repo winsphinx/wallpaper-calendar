@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250429 - 几何之美绽放于此
+## 20250430 - 瀑布声在各国间回响
 
-###### 维朗德里城堡，卢瓦尔河谷，法国
+###### 从巴拉那州看到的伊瓜苏瀑布, 巴西
 
-![](https://www.bing.com/th?id=OHR.GardensVillandry_ZH-CN3660934263_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_UHD.jpg)
 
 ## 归档
 
