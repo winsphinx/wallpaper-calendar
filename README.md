@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20250430 - 瀑布声在各国间回响
+## 20250501 - 芬芳的传统
 
-###### 从巴拉那州看到的伊瓜苏瀑布, 巴西
+###### 鸡蛋花，夏威夷，美国
 
-![](https://www.bing.com/th?id=OHR.FozdoIguacu2025_ZH-CN3781165595_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PinkPlumeria_ZH-CN3890147555_UHD.jpg)
 
 ## 归档
 
+| [202505](/202505/README.md)
 | [202504](/202504/README.md)
 | [202503](/202503/README.md)
 | [202502](/202502/README.md)
