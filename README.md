@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250501 - 芬芳的传统
+## 20250502 - 绿鹭
 
-###### 鸡蛋花，夏威夷，美国
+###### 维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西
 
-![](https://www.bing.com/th?id=OHR.PinkPlumeria_ZH-CN3890147555_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_UHD.jpg)
 
 ## 归档
 
