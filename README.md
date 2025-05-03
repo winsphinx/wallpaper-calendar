@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250502 - 绿鹭
+## 20250503 - 让我们一起庆祝宇宙
 
-###### 维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西
+###### 拱门国家公园双拱门映衬下的银河，犹他州，美国
 
-![](https://www.bing.com/th?id=OHR.BrazilHeron_ZH-CN7200229300_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ArchesGalaxy_ZH-CN0954505086_UHD.jpg)
 
 ## 归档
 
