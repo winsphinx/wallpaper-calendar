@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250503 - 让我们一起庆祝宇宙
+## 20250504 - 欢迎来到纳布星球！
 
-###### 拱门国家公园双拱门映衬下的银河，犹他州，美国
+###### 西班牙广场，塞维利亚，西班牙
 
-![](https://www.bing.com/th?id=OHR.ArchesGalaxy_ZH-CN0954505086_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SevilleNaboo_ZH-CN1065227658_UHD.jpg)
 
 ## 归档
 
