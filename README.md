@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250504 - 欢迎来到纳布星球！
+## 20250505 - 秀美壮丽的山河
 
-###### 西班牙广场，塞维利亚，西班牙
+###### 日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林
 
-![](https://www.bing.com/th?id=OHR.SevilleNaboo_ZH-CN1065227658_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_UHD.jpg)
 
 ## 归档
 
