@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250505 - 秀美壮丽的山河
+## 20250506 - 不一般的沙漠之旅
 
-###### 日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林
+###### 一架超轻型飞机飞越纳米比亚沙漠
 
-![](https://www.bing.com/th?id=OHR.BeginningofSummer25Y_ZH-CN2000519236_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_UHD.jpg)
 
 ## 归档
 
