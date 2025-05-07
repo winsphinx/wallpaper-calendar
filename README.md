@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250506 - 不一般的沙漠之旅
+## 20250507 - 岩石上的城堡
 
-###### 一架超轻型飞机飞越纳米比亚沙漠
+###### 邓路斯城堡，安特里姆郡，北爱尔兰
 
-![](https://www.bing.com/th?id=OHR.FlyoverNamibia_ZH-CN2114171516_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_UHD.jpg)
 
 ## 归档
 
