@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250507 - 岩石上的城堡
+## 20250508 - 值得大声欢呼的一天
 
-###### 邓路斯城堡，安特里姆郡，北爱尔兰
+###### Rhyolite附近山谷中的驴子，内华达州，美国
 
-![](https://www.bing.com/th?id=OHR.DunluceIreland_ZH-CN2412229757_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RhyoliteDonkeys_ZH-CN2626127533_UHD.jpg)
 
 ## 归档
 
