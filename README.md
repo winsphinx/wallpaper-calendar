@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250508 - 值得大声欢呼的一天
+## 20250509 - 融入又突出
 
-###### Rhyolite附近山谷中的驴子，内华达州，美国
+###### 普通变色龙
 
-![](https://www.bing.com/th?id=OHR.RhyoliteDonkeys_ZH-CN2626127533_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CuteChameleon_ZH-CN5029981236_UHD.jpg)
 
 ## 归档
 
