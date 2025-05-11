@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250510 - 童话烟囱！
+## 20250511 - 以猫科动物的方式庆祝母爱！
 
-###### 巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙
+###### 豹妈妈正在梳理她的幼崽，Jao保护区，博茨瓦纳
 
-![](https://www.bing.com/th?id=OHR.Castildetierra_ZH-CN6042529770_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LeopardMother_ZH-CN6134353524_UHD.jpg)
 
 ## 归档
 
