@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250511 - 以猫科动物的方式庆祝母爱！
+## 20250512 - 紫色的波浪
 
-###### 豹妈妈正在梳理她的幼崽，Jao保护区，博茨瓦纳
+###### 东京的鸢尾花园, 日本
 
-![](https://www.bing.com/th?id=OHR.LeopardMother_ZH-CN6134353524_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IrisGarden_ZH-CN6226448882_UHD.jpg)
 
 ## 归档
 
