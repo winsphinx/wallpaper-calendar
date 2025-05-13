@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250512 - 紫色的波浪
+## 20250513 - 66岁，依然美丽动人
 
-###### 东京的鸢尾花园, 日本
+###### 百内国家公园, 巴塔哥尼亚, 智利
 
-![](https://www.bing.com/th?id=OHR.IrisGarden_ZH-CN6226448882_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TorresChile_ZH-CN6319613148_UHD.jpg)
 
 ## 归档
 
