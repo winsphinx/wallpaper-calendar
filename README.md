@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250514 - 矿石与传奇
+## 20250515 - 伦敦时间到！
 
-###### 弗拉维亚港, 苏尔西斯-伊格莱西恩特, 撒丁岛, 意大利
+###### 大本钟和国会大厦, 威斯敏斯特宫, 伦敦, 英国
 
-![](https://www.bing.com/th?id=OHR.SardiniaFlavia_ZH-CN6784449568_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LondonParliament_ZH-CN7089923691_UHD.jpg)
 
 ## 归档
 
