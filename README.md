@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250516 - 守护濒危生命的一天
+## 20250517 - 威尼斯式的“甜蜜生活”
 
-###### 大绿金刚鹦鹉, 墨西哥
+###### 威尼斯潟湖中的三角洲, 意大利
 
-![](https://www.bing.com/th?id=OHR.GreenMacaw_ZH-CN3451340204_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VeniceLagoon_ZH-CN3791408491_UHD.jpg)
 
 ## 归档
 
