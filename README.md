@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250517 - 威尼斯式的“甜蜜生活”
+## 20250518 - 图卢兹的暮色
 
-###### 威尼斯潟湖中的三角洲, 意大利
+###### 加龙河对面的圣皮埃尔桥，图卢兹，法国
 
-![](https://www.bing.com/th?id=OHR.VeniceLagoon_ZH-CN3791408491_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_UHD.jpg)
 
 ## 归档
 
