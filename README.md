@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250518 - 图卢兹的暮色
+## 20250519 - 汉密尔顿山的蜿蜒之路
 
-###### 加龙河对面的圣皮埃尔桥，图卢兹，法国
+###### 汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国
 
-![](https://www.bing.com/th?id=OHR.ToulouseBridge_ZH-CN3930246927_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_UHD.jpg)
 
 ## 归档
 
