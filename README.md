@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250519 - 汉密尔顿山的蜿蜒之路
+## 20250520 - 小翅膀，大作用
 
-###### 汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国
+###### 薰衣草上的蜜蜂
 
-![](https://www.bing.com/th?id=OHR.MountHamilton_ZH-CN4280549129_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_UHD.jpg)
 
 ## 归档
 
