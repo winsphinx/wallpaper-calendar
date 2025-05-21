@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250520 - 小翅膀，大作用
+## 20250521 - 茶歇时光
 
-###### 薰衣草上的蜜蜂
+###### 杨家塘村茶园，松阳县，中国
 
-![](https://www.bing.com/th?id=OHR.HoneyBeeLavender_ZH-CN4513594236_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_UHD.jpg)
 
 ## 归档
 
