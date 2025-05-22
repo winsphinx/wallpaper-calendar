@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250521 - 茶歇时光
+## 20250522 - 猴面包树大道
 
-###### 杨家塘村茶园，松阳县，中国
+###### 日落时分的猴面包树，猴面包树大道，马达加斯加
 
-![](https://www.bing.com/th?id=OHR.SongyangTeaGarden_ZH-CN4763170909_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_UHD.jpg)
 
 ## 归档
 
