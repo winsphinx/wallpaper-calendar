@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250522 - 猴面包树大道
+## 20250523 - 为龟喝彩！
 
-###### 日落时分的猴面包树，猴面包树大道，马达加斯加
+###### 停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔
 
-![](https://www.bing.com/th?id=OHR.BaobabAvenue_ZH-CN5217451344_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_UHD.jpg)
 
 ## 归档
 
