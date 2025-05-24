@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250523 - 为龟喝彩！
+## 20250524 - 欧洲的野性之美
 
-###### 停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔
+###### 挪威尤通黑门山国家公园
 
-![](https://www.bing.com/th?id=OHR.ButterflyTurtle_ZH-CN5706515924_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_UHD.jpg)
 
 ## 归档
 
