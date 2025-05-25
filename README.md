@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250524 - 欧洲的野性之美
+## 20250525 - 绽放于你所在之地
 
-###### 挪威尤通黑门山国家公园
+###### 布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大
 
-![](https://www.bing.com/th?id=OHR.JotunheimenPark_ZH-CN7417034574_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_UHD.jpg)
 
 ## 归档
 
