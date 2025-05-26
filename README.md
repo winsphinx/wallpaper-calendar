@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250525 - 绽放于你所在之地
+## 20250526 - 山间奔驰
 
-###### 布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大
+###### 沿着岚山保津川行驶的火车，京都，日本
 
-![](https://www.bing.com/th?id=OHR.ButchartFlowers_ZH-CN6692930571_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Arashiyama2025_ZH-CN7836747321_UHD.jpg)
 
 ## 归档
 
