@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250528 - 海獭很重要
+## 20250529 - 穿越数个世纪的流淌
 
-###### 一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国
+###### 米拉韦特，埃布罗河，加泰罗尼亚塔，西班牙
 
-![](https://www.bing.com/th?id=OHR.KelpOtter_ZH-CN8297228161_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MiravetSpain_ZH-CN8584568741_UHD.jpg)
 
 ## 归档
 
