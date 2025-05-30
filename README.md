@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250529 - 穿越数个世纪的流淌
+## 20250530 - 流经烟雾弥漫之地
 
-###### 米拉韦特，埃布罗河，加泰罗尼亚塔，西班牙
+###### 小鸽子河，大雾山国家公园，田纳西州, 美国
 
-![](https://www.bing.com/th?id=OHR.MiravetSpain_ZH-CN8584568741_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LittlePigeonRiver_ZH-CN6554251943_UHD.jpg)
 
 ## 归档
 
