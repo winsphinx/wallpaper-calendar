@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20250531 - 充满节日氛围节装饰
+## 20250601 - 海底世界
 
-###### 用彩色丝线串成的香囊，端午节前夕的庙会上，吉林省吉林市，中国
+###### 格朗特尔岛附近的堡礁，法属新喀里多尼亚
 
-![](https://www.bing.com/th?id=OHR.DuanwuFestivalY25_ZH-CN7343005503_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GrandeTerreReef_ZH-CN7463701309_UHD.jpg)
 
 ## 归档
 
+| [202506](/202506/README.md)
 | [202505](/202505/README.md)
 | [202504](/202504/README.md)
 | [202503](/202503/README.md)
