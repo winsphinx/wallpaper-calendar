@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250601 - 海底世界
+## 20250602 - 花的力量
 
-###### 格朗特尔岛附近的堡礁，法属新喀里多尼亚
+###### 一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约
 
-![](https://www.bing.com/th?id=OHR.GrandeTerreReef_ZH-CN7463701309_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_UHD.jpg)
 
 ## 归档
 
