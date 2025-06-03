@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250602 - 花的力量
+## 20250603 - 为快乐而刹车
 
-###### 一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约
+###### 乌得勒支桥上的自行车，荷兰
 
-![](https://www.bing.com/th?id=OHR.EchinaceaButterfly_ZH-CN7877489878_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_UHD.jpg)
 
 ## 归档
 
