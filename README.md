@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250603 - 为快乐而刹车
+## 20250604 - 卡拉卢纳海滩, 撒丁岛, 意大利
 
-###### 乌得勒支桥上的自行车，荷兰
+###### 卡拉卢纳海滩, 撒丁岛, 意大利
 
-![](https://www.bing.com/th?id=OHR.BicyclesUtrecht_ZH-CN8016028978_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_UHD.jpg)
 
 ## 归档
 
