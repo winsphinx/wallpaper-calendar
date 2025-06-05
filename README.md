@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250604 - 卡拉卢纳海滩, 撒丁岛, 意大利
+## 20250605 - 隐藏的美景
 
-###### 卡拉卢纳海滩, 撒丁岛, 意大利
+###### 福玛萨瀑布，迪亚曼蒂纳，巴西
 
-![](https://www.bing.com/th?id=OHR.CalaLuna_ZH-CN8174946414_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_UHD.jpg)
 
 ## 归档
 
