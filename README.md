@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250605 - 隐藏的美景
+## 20250606 - 诺曼底登陆日的转折点
 
-###### 福玛萨瀑布，迪亚曼蒂纳，巴西
+###### 诺曼底的阿罗芒什莱班 , 法国
 
-![](https://www.bing.com/th?id=OHR.FumacinhaBahia_ZH-CN9190616593_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_UHD.jpg)
 
 ## 归档
 
