@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250606 - 诺曼底登陆日的转折点
+## 20250607 - 走上高远之路
 
-###### 诺曼底的阿罗芒什莱班 , 法国
+###### 松山顶峰, 洛杉矶国家森林公园, 加利福尼亚州, 美国
 
-![](https://www.bing.com/th?id=OHR.NormandyBeach_ZH-CN9312381737_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PacificCrestTrail_ZH-CN9582395021_UHD.jpg)
 
 ## 归档
 
