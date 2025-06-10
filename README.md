@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250609 - 探索君临城
+## 20250610 - 草之河流
 
-###### 达尔马提亚的杜布罗夫尼克古城，克罗地亚
+###### 大沼泽地国家公园的鸟瞰图，佛罗里达州，美国
 
-![](https://www.bing.com/th?id=OHR.DubrovnikTwilight_ZH-CN2981648854_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AerialEverglades_ZH-CN3388982881_UHD.jpg)
 
 ## 归档
 
