@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250610 - 草之河流
+## 20250611 - 潮汐间的芭蕾
 
-###### 大沼泽地国家公园的鸟瞰图，佛罗里达州，美国
+###### 大红鹳，吕德里茨，纳米比亚
 
-![](https://www.bing.com/th?id=OHR.AerialEverglades_ZH-CN3388982881_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_UHD.jpg)
 
 ## 归档
 
