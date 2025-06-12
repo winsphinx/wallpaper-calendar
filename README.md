@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250611 - 潮汐间的芭蕾
+## 20250612 - 星空、岩石与孤寂
 
-###### 大红鹳，吕德里茨，纳米比亚
+###### 奇索斯山脉，大弯国家公园，德克萨斯州，美国
 
-![](https://www.bing.com/th?id=OHR.FlamingosNamibia_ZH-CN3639748956_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_UHD.jpg)
 
 ## 归档
 
