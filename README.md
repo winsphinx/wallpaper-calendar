@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250612 - 星空、岩石与孤寂
+## 20250613 - 海洋的隐秘心跳
 
-###### 奇索斯山脉，大弯国家公园，德克萨斯州，美国
+###### 维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙
 
-![](https://www.bing.com/th?id=OHR.BigBendChisos_ZH-CN3794880768_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_UHD.jpg)
 
 ## 归档
 
