@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250613 - 海洋的隐秘心跳
+## 20250614 - 静谧之声
 
-###### 维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙
+###### 五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区
 
-![](https://www.bing.com/th?id=OHR.SanMiguelAzores_ZH-CN2511982585_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DolomitiEstate_ZH-CN6501271709_UHD.jpg)
 
 ## 归档
 
