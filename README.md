@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250615 - 羽翼下的父爱
+## 20250616 - 远古泳者的现代困境
 
-###### 雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利
+###### 海龟，费尔南多·迪诺罗尼亚群岛，巴西
 
-![](https://www.bing.com/th?id=OHR.RheaDad_ZH-CN6706868651_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SeaTurtleBrazil_ZH-CN6907161064_UHD.jpg)
 
 ## 归档
 
