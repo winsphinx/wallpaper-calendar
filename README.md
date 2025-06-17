@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250616 - 远古泳者的现代困境
+## 20250617 - 海岸静谧，野性依旧
 
-###### 海龟，费尔南多·迪诺罗尼亚群岛，巴西
+###### 坎伯兰岛国家海岸的海滨森林，乔治亚州，美国
 
-![](https://www.bing.com/th?id=OHR.SeaTurtleBrazil_ZH-CN6907161064_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CumberlandOaks_ZH-CN7265906780_UHD.jpg)
 
 ## 归档
 
