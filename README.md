@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250617 - 海岸静谧，野性依旧
+## 20250618 - 让授粉游戏开始吧！
 
-###### 坎伯兰岛国家海岸的海滨森林，乔治亚州，美国
+###### 红花石蒜上的柑橘凤蝶
 
-![](https://www.bing.com/th?id=OHR.CumberlandOaks_ZH-CN7265906780_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AsianSwallowtail_ZH-CN7442263508_UHD.jpg)
 
 ## 归档
 
