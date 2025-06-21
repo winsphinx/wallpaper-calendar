@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250620 - 寻找斑点
+## 20250621 - 此花端合在瑶池
 
-###### 一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚
+###### 雾中莲花，中国佛山
 
-![](https://www.bing.com/th?id=OHR.SerengetiGiraffe_ZH-CN2613013393_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_UHD.jpg)
 
 ## 归档
 
