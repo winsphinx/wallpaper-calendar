@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250621 - 此花端合在瑶池
+## 20250622 - 一路丛林
 
-###### 雾中莲花，中国佛山
+###### 亚马逊雨林，厄瓜多尔
 
-![](https://www.bing.com/th?id=OHR.SummerSolsticeY25_ZH-CN2728972774_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_UHD.jpg)
 
 ## 归档
 
