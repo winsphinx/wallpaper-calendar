@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250622 - 一路丛林
+## 20250623 - 从废墟中重生
 
-###### 亚马逊雨林，厄瓜多尔
+###### 德累斯顿易北河谷, 德国
 
-![](https://www.bing.com/th?id=OHR.AmazonEcuador_ZH-CN2864991745_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_UHD.jpg)
 
 ## 归档
 
