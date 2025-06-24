@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250623 - 从废墟中重生
+## 20250624 - 大自然的耐心之作
 
-###### 德累斯顿易北河谷, 德国
+###### 精致拱门, 拱门国家公园, 犹他州, 美国
 
-![](https://www.bing.com/th?id=OHR.DresdenElbe_ZH-CN8776977800_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_UHD.jpg)
 
 ## 归档
 
