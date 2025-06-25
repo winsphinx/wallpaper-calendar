@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250624 - 大自然的耐心之作
+## 20250625 - 这里举办的是哪个音乐节？
 
-###### 精致拱门, 拱门国家公园, 犹他州, 美国
+###### 格拉斯顿伯里托尔上的圣迈克尔塔, 格拉斯顿伯里, 萨默塞特郡, 英格兰
 
-![](https://www.bing.com/th?id=OHR.DelicateArch_ZH-CN8971667580_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GlastonburyScenic_ZH-CN9162571249_UHD.jpg)
 
 ## 归档
 
