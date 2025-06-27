@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250626 - 海岸线附近的“马戏”
+## 20250627 - 古冰川遗迹之地
 
-###### 马头岩上空的银河, 新南威尔士州, 澳大利亚
+###### Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典
 
-![](https://www.bing.com/th?id=OHR.HorseheadRock_ZH-CN9319651125_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SwedenReserve_ZH-CN9963744170_UHD.jpg)
 
 ## 归档
 
