@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250627 - 古冰川遗迹之地
+## 20250628 - 从实用建筑到地标象征
 
-###### Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典
+###### 曼海姆水塔, 德国
 
-![](https://www.bing.com/th?id=OHR.SwedenReserve_ZH-CN9963744170_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WatertowerMannheim_ZH-CN0692039329_UHD.jpg)
 
 ## 归档
 
