@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250628 - 从实用建筑到地标象征
+## 20250629 - 哪里让历史变得“辛辣”
 
-###### 曼海姆水塔, 德国
+###### Pulau Ay蓝色泻湖, 班达群岛, 印度尼西亚
 
-![](https://www.bing.com/th?id=OHR.WatertowerMannheim_ZH-CN0692039329_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_UHD.jpg)
 
 ## 归档
 
