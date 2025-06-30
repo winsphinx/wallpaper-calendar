@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250629 - 哪里让历史变得“辛辣”
+## 20250630 - 是谁击中了地面？
 
-###### Pulau Ay蓝色泻湖, 班达群岛, 印度尼西亚
+###### 沃尔夫溪陨石坑, 澳大利亚
 
-![](https://www.bing.com/th?id=OHR.BandaIsland_ZH-CN1145779264_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WolfeCrater_ZH-CN1652906326_UHD.jpg)
 
 ## 归档
 
