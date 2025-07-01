@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20250630 - 是谁击中了地面？
+## 20250701 - 原始渔村的风貌
 
-###### 沃尔夫溪陨石坑, 澳大利亚
+###### Tilting渔村, 福戈岛 , 纽芬兰和拉布拉多省, 加拿大
 
-![](https://www.bing.com/th?id=OHR.WolfeCrater_ZH-CN1652906326_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CanadaDayFogo_ZH-CN2593963748_UHD.jpg)
 
 ## 归档
 
+| [202507](/202507/README.md)
 | [202506](/202506/README.md)
 | [202505](/202505/README.md)
 | [202504](/202504/README.md)
