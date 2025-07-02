@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250701 - 原始渔村的风貌
+## 20250702 - 触手之间的依赖
 
-###### Tilting渔村, 福戈岛 , 纽芬兰和拉布拉多省, 加拿大
+###### 被泡尖海葵包围的刺颊海葵鱼，米尔恩湾，巴布亚新几内亚
 
-![](https://www.bing.com/th?id=OHR.CanadaDayFogo_ZH-CN2593963748_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaroonClownfish_ZH-CN5071934692_UHD.jpg)
 
 ## 归档
 
