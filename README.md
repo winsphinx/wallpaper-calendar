@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250702 - 触手之间的依赖
+## 20250703 - 彩虹河的清澈拥抱
 
-###### 被泡尖海葵包围的刺颊海葵鱼，米尔恩湾，巴布亚新几内亚
+###### 彩虹泉州立公园的彩虹河，佛罗里达州，美国
 
-![](https://www.bing.com/th?id=OHR.MaroonClownfish_ZH-CN5071934692_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RainbowRiver_ZH-CN5320095849_UHD.jpg)
 
 ## 归档
 
