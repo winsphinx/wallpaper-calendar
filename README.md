@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250704 - 水、空气、岩石
+## 20250705 - 优雅而低调的巨人
 
-###### 奥罗塞，撒丁岛，意大利
+###### Cize-Bolozon viaduct crossing the Ain gorge, France
 
-![](https://www.bing.com/th?id=OHR.OroseiSardegna_ZH-CN5789138034_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_UHD.jpg)
 
 ## 归档
 
