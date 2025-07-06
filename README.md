@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250705 - 优雅而低调的巨人
+## 20250706 - 时光沙丘
 
-###### Cize-Bolozon viaduct crossing the Ain gorge, France
+###### 死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.BolozonViaduct_ZH-CN6408632524_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MesquiteFlats_ZH-CN7152959188_UHD.jpg)
 
 ## 归档
 
