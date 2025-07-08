@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250707 - 闪电俯冲、水花四溅，然后开吃
+## 20250708 - 锋芒毕露的美
 
-###### 潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰
+###### 塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利
 
-![](https://www.bing.com/th?id=OHR.ShetlandGannets_ZH-CN7279521125_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_UHD.jpg)
 
 ## 归档
 
