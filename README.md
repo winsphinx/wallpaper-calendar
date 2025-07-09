@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250708 - 锋芒毕露的美
+## 20250709 - 具有纪念意义的火车站
 
-###### 塞切达，多洛米蒂山脉的山峰，南蒂罗尔，意大利
+###### 宪法火车站，布宜诺斯艾利斯，阿根廷
 
-![](https://www.bing.com/th?id=OHR.SecedaPeak_ZH-CN7633793128_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_UHD.jpg)
 
 ## 归档
 
