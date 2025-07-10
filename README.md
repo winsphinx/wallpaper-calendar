@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250709 - 具有纪念意义的火车站
+## 20250710 - 奔向自由之浪
 
-###### 宪法火车站，布宜诺斯艾利斯，阿根廷
+###### 巴哈马的绿松石色水域
 
-![](https://www.bing.com/th?id=OHR.ConstitucionStation_ZH-CN7962568053_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_UHD.jpg)
 
 ## 归档
 
