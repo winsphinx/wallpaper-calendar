@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250710 - 奔向自由之浪
+## 20250711 - 把我们都算上
 
-###### 巴哈马的绿松石色水域
+###### 日出时的东京，日本
 
-![](https://www.bing.com/th?id=OHR.BahamaBlues_ZH-CN8134624828_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TokyoSunrise_ZH-CN0091906710_UHD.jpg)
 
 ## 归档
 
