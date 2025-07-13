@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250712 - 跟随妈妈的脚步
+## 20250713 - 层层叠叠的岩石
 
-###### 汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚
+###### 卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛
 
-![](https://www.bing.com/th?id=OHR.ThomsonGazelle_ZH-CN0413171014_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_UHD.jpg)
 
 ## 归档
 
