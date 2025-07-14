@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250713 - 层层叠叠的岩石
+## 20250714 - 追逐海浪，掀起潮汐
 
-###### 卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛
+###### 加利西亚海域游弋的幼年大青鲨，西班牙
 
-![](https://www.bing.com/th?id=OHR.BasaltColumns_ZH-CN0743036217_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_UHD.jpg)
 
 ## 归档
 
