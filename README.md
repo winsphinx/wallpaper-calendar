@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250714 - 追逐海浪，掀起潮汐
+## 20250715 - 永恒的光芒
 
-###### 加利西亚海域游弋的幼年大青鲨，西班牙
+###### 英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国
 
-![](https://www.bing.com/th?id=OHR.YoungShark_ZH-CN0887374663_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PerseidsPine_ZH-CN1081004815_UHD.jpg)
 
 ## 归档
 
