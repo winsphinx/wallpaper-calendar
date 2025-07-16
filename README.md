@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250715 - 永恒的光芒
+## 20250716 - 伊西斯女神的光辉照耀下
 
-###### 英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国
+###### 菲莱神庙
 
-![](https://www.bing.com/th?id=OHR.PerseidsPine_ZH-CN1081004815_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TemplePhilae_ZH-CN1232015188_UHD.jpg)
 
 ## 归档
 
