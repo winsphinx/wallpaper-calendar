@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250716 - 伊西斯女神的光辉照耀下
+## 20250717 - 追随香气的地平线
 
-###### 菲莱神庙
+###### 瓦朗索勒高原的薰衣草田，法国
 
-![](https://www.bing.com/th?id=OHR.TemplePhilae_ZH-CN1232015188_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FranceLavender_ZH-CN1639602547_UHD.jpg)
 
 ## 归档
 
