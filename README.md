@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250717 - 追随香气的地平线
+## 20250718 - 一切准备就绪，等待日落
 
-###### 瓦朗索勒高原的薰衣草田，法国
+###### 塞里雅兰瀑布日落美景，冰岛
 
-![](https://www.bing.com/th?id=OHR.FranceLavender_ZH-CN1639602547_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IcelandSolstice_ZH-CN6073168622_UHD.jpg)
 
 ## 归档
 
