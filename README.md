@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250718 - 一切准备就绪，等待日落
+## 20250719 - 化石、瀑布与林间小径
 
-###### 塞里雅兰瀑布日落美景，冰岛
+###### 幽鹤国家公园的伯吉斯山和翡翠湖, 不列颠哥伦比亚省, 加拿大
 
-![](https://www.bing.com/th?id=OHR.IcelandSolstice_ZH-CN6073168622_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YohoNP_ZH-CN2349599497_UHD.jpg)
 
 ## 归档
 
