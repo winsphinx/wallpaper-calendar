@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250719 - 化石、瀑布与林间小径
+## 20250720 - 在月光下起舞
 
-###### 幽鹤国家公园的伯吉斯山和翡翠湖, 不列颠哥伦比亚省, 加拿大
+###### 望远镜下的月球表面照片
 
-![](https://www.bing.com/th?id=OHR.YohoNP_ZH-CN2349599497_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BigMoon_ZH-CN2508603883_UHD.jpg)
 
 ## 归档
 
