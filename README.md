@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250720 - 在月光下起舞
+## 20250721 - 海洋中的热带雨林
 
-###### 望远镜下的月球表面照片
+###### 浅海中的鹿角珊瑚
 
-![](https://www.bing.com/th?id=OHR.BigMoon_ZH-CN2508603883_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AcroporaReef_ZH-CN2622120276_UHD.jpg)
 
 ## 归档
 
