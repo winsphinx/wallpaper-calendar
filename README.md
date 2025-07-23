@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250722 - 天山上的蓝宝石
+## 20250723 - 城中之国
 
-###### 夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区
+###### 梵蒂冈城与圣彼得大教堂，罗马，意大利
 
-![](https://www.bing.com/th?id=OHR.GreatHeatY25_ZH-CN8252122347_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VaticanCity_ZH-CN3075109504_UHD.jpg)
 
 ## 归档
 
