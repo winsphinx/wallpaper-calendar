@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250723 - 城中之国
+## 20250724 - 物以类聚，鸟以群分
 
-###### 梵蒂冈城与圣彼得大教堂，罗马，意大利
+###### 栖息在树枝上的灰燕鵙家族
 
-![](https://www.bing.com/th?id=OHR.VaticanCity_ZH-CN3075109504_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AshyWoodswallow_ZH-CN3224168805_UHD.jpg)
 
 ## 归档
 
