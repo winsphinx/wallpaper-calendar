@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250725 - 生活的画卷
+## 20250726 - 潮汐的守护者
 
-###### 大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙
+###### 黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚
 
-![](https://www.bing.com/th?id=OHR.LasPalmas_ZH-CN5993442425_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_UHD.jpg)
 
 ## 归档
 
