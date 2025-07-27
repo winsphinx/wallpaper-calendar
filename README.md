@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250726 - 潮汐的守护者
+## 20250727 - 同步闪耀
 
-###### 黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚
+###### 黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及
 
-![](https://www.bing.com/th?id=OHR.MangroveTwilight_ZH-CN3596666263_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_UHD.jpg)
 
 ## 归档
 
