@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250727 - 同步闪耀
+## 20250728 - 领先一步
 
-###### 黑鳍梭鱼群，鲨鱼礁，拉斯穆罕默德国家公园，西奈半岛，埃及
+###### 蒙古草原上的蒙古包
 
-![](https://www.bing.com/th?id=OHR.BlackfinBarracuda_ZH-CN3850642551_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_UHD.jpg)
 
 ## 归档
 
