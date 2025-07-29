@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250728 - 领先一步
+## 20250729 - 丛林女王
 
-###### 蒙古草原上的蒙古包
+###### 雌性孟加拉虎，坎哈国家公园，印度
 
-![](https://www.bing.com/th?id=OHR.MongoliaYurts_ZH-CN4015475887_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TigerDay_ZH-CN4359136631_UHD.jpg)
 
 ## 归档
 
