@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250729 - 丛林女王
+## 20250730 - 理想的世界！
 
-###### 雌性孟加拉虎，坎哈国家公园，印度
+###### 里瓦德塞利亚，阿斯图里亚斯，西班牙
 
-![](https://www.bing.com/th?id=OHR.TigerDay_ZH-CN4359136631_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RibadesellaSummer_ZH-CN4852547359_UHD.jpg)
 
 ## 归档
 
