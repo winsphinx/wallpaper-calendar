@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250730 - 理想的世界！
+## 20250731 - 远离尘嚣
 
-###### 里瓦德塞利亚，阿斯图里亚斯，西班牙
+###### 纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国
 
-![](https://www.bing.com/th?id=OHR.RibadesellaSummer_ZH-CN4852547359_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NaPaliKauai_ZH-CN5070149838_UHD.jpg)
 
 ## 归档
 
