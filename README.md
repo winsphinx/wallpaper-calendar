@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20250731 - 远离尘嚣
+## 20250801 - 惊喜随时上演
 
-###### 纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国
+###### 皇家英里大道, 爱丁堡, 苏格兰
 
-![](https://www.bing.com/th?id=OHR.NaPaliKauai_ZH-CN5070149838_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_UHD.jpg)
 
 ## 归档
 
+| [202508](/202508/README.md)
 | [202507](/202507/README.md)
 | [202506](/202506/README.md)
 | [202505](/202505/README.md)
