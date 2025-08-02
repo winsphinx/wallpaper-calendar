@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250801 - 惊喜随时上演
+## 20250802 - 古老的岩画
 
-###### 皇家英里大道, 爱丁堡, 苏格兰
+###### 圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国
 
-![](https://www.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_UHD.jpg)
 
 ## 归档
 
