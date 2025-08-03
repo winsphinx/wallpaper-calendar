@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250802 - 古老的岩画
+## 20250803 - 你好，黄色！
 
-###### 圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国
+###### 夏天田野里盛开的向日葵
 
-![](https://www.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_UHD.jpg)
 
 ## 归档
 
