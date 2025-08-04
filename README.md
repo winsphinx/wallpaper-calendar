@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250803 - 你好，黄色！
+## 20250804 - 这是谁的家？
 
-###### 夏天田野里盛开的向日葵
+###### 巢中的乌林鸮, 芬兰
 
-![](https://www.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LaplandOwl_ZH-CN6070251232_UHD.jpg)
 
 ## 归档
 
