@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250805 - 潮起潮落
+## 20250806 - 马达加斯加原住民
 
-###### 拉霍亚的潮汐池‌, 加利福尼亚州, 美国
+###### 环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加
 
-![](https://www.bing.com/th?id=OHR.CaliforniaTidepool_ZH-CN6273815361_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_UHD.jpg)
 
 ## 归档
 
