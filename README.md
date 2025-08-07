@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250806 - 马达加斯加原住民
+## 20250807 - 海岸的密码
 
-###### 环尾狐猴幼崽在玩自己的尾巴‌, 马达加斯加
+###### 加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国
 
-![](https://www.bing.com/th?id=OHR.BabyLemur_ZH-CN6617977758_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_UHD.jpg)
 
 ## 归档
 
