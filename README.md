@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250807 - 海岸的密码
+## 20250808 - 奔流不息，为你为我
 
-###### 加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国
+###### 伊瓜苏瀑布的三火枪瀑布, 阿根廷
 
-![](https://www.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_UHD.jpg)
 
 ## 归档
 
