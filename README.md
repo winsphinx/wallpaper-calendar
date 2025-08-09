@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250808 - 奔流不息，为你为我
+## 20250809 - 致敬原住民之声
 
-###### 伊瓜苏瀑布的三火枪瀑布, 阿根廷
+###### 陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰
 
-![](https://www.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_UHD.jpg)
 
 ## 归档
 
