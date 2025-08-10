@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250809 - 致敬原住民之声
+## 20250810 - 为正义怒吼
 
-###### 陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰
+###### 马赛马拉国家保护区的雌狮,肯尼亚
 
-![](https://www.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_UHD.jpg)
 
 ## 归档
 
