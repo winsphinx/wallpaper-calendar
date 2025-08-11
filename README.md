@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250810 - 为正义怒吼
+## 20250811 - 来自山巅的明信片
 
-###### 马赛马拉国家保护区的雌狮,肯尼亚
+###### 圣玛格达莱娜, 多洛米蒂山, 意大利
 
-![](https://www.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_UHD.jpg)
 
 ## 归档
 
