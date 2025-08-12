@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250811 - 来自山巅的明信片
+## 20250812 - 野性、智慧与奇迹
 
-###### 圣玛格达莱娜, 多洛米蒂山, 意大利
+###### 非洲象群, 安博塞利国家公园, 肯尼亚
 
-![](https://www.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_UHD.jpg)
 
 ## 归档
 
