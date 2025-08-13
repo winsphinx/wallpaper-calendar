@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250812 - 野性、智慧与奇迹
+## 20250813 - 地球的公开秘密
 
-###### 非洲象群, 安博塞利国家公园, 肯尼亚
+###### 一名男子从摩押附近的科罗纳拱门索降, 美国
 
-![](https://www.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_UHD.jpg)
 
 ## 归档
 
