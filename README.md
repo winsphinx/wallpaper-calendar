@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250813 - 地球的公开秘密
+## 20250814 - 从山顶俯瞰
 
-###### 一名男子从摩押附近的科罗纳拱门索降, 美国
+###### 皮兹奈尔山缆车站, 格劳宾登州, 瑞士
 
-![](https://www.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_UHD.jpg)
 
 ## 归档
 
