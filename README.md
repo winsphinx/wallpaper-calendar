@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250814 - 从山顶俯瞰
+## 20250815 - 水下翱翔
 
-###### 皮兹奈尔山缆车站, 格劳宾登州, 瑞士
+###### 斑点鹞鲼，圣克里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄瓜多尔
 
-![](https://www.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg)
 
 ## 归档
 
