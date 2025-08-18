@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250817 - 眺望大海的高塔
+## 20250818 - 溪流入梦
 
-###### 灵维格灯塔，维泽桑讷，丹麦
+###### 雪崩湖步道，阿迪朗达克高峰区，纽约州，美国
 
-![](https://www.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_UHD.jpg)
 
 ## 归档
 
