@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250818 - 溪流入梦
+## 20250819 - 随海而流的岩石！
 
-###### 雪崩湖步道，阿迪朗达克高峰区，纽约州，美国
+###### 祖马亚的复理层，巴斯克地区，西班牙
 
-![](https://www.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_UHD.jpg)
 
 ## 归档
 
