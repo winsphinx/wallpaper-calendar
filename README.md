@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250819 - 随海而流的岩石！
+## 20250820 - 永恒的建筑
 
-###### 祖马亚的复理层，巴斯克地区，西班牙
+###### 博尼法乔城堡，科西嘉岛南部，法国
 
-![](https://www.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_UHD.jpg)
 
 ## 归档
 
