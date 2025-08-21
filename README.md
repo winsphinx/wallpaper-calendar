@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250820 - 永恒的建筑
+## 20250821 - 伫立凝视
 
-###### 博尼法乔城堡，科西嘉岛南部，法国
+###### 穗䳭和盛开的帚石楠，峰区国家公园，英格兰
 
-![](https://www.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WheatearBird_ZH-CN2663965839_UHD.jpg)
 
 ## 归档
 
