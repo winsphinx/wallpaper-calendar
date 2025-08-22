@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250821 - 伫立凝视
+## 20250822 - 大自然的绿色地毯
 
-###### 穗䳭和盛开的帚石楠，峰区国家公园，英格兰
+###### 帕卢斯连绵起伏的丘陵，华盛顿州，美国
 
-![](https://www.bing.com/th?id=OHR.WheatearBird_ZH-CN2663965839_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_UHD.jpg)
 
 ## 归档
 
