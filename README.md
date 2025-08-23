@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250822 - 大自然的绿色地毯
+## 20250823 - 彩林叠翠间的瀑布
 
-###### 帕卢斯连绵起伏的丘陵，华盛顿州，美国
+###### 秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国
 
-![](https://www.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_UHD.jpg)
 
 ## 归档
 
