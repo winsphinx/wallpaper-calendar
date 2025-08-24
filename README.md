@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250823 - 彩林叠翠间的瀑布
+## 20250824 - “跟我来”
 
-###### 秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国
+###### 欧洲黇鹿‌，英格兰
 
-![](https://www.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_UHD.jpg)
 
 ## 归档
 
