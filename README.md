@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250824 - “跟我来”
+## 20250825 - 从火山之源到河流之路
 
-###### 欧洲黇鹿‌，英格兰
+###### 方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国
 
-![](https://www.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_UHD.jpg)
 
 ## 归档
 
