@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250825 - 从火山之源到河流之路
+## 20250826 - 一座非凡的特鲁洛小镇
 
-###### 方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国
+###### 阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利
 
-![](https://www.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_UHD.jpg)
 
 ## 归档
 
