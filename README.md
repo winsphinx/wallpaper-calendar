@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250826 - 一座非凡的特鲁洛小镇
+## 20250827 - 海洋上方的湖泊
 
-###### 阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利
+###### 瑟沃格湖，瓦加尔岛，法罗群岛
 
-![](https://www.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_UHD.jpg)
 
 ## 归档
 
