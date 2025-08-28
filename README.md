@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250827 - 海洋上方的湖泊
+## 20250828 - 这只白鹭毫无遗憾
 
-###### 瑟沃格湖，瓦加尔岛，法罗群岛
+###### 大白鹭，匈牙利
 
-![](https://www.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_UHD.jpg)
 
 ## 归档
 
