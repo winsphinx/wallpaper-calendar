@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250828 - 这只白鹭毫无遗憾
+## 20250829 - 网格的心脏
 
-###### 大白鹭，匈牙利
+###### 马约尔广场鸟瞰图, 马德里, 西班牙
 
-![](https://www.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_UHD.jpg)
 
 ## 归档
 
