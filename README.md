@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250829 - 网格的心脏
+## 20250830 - 有鳍且惊艳
 
-###### 马约尔广场鸟瞰图, 马德里, 西班牙
+###### 阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫
 
-![](https://www.bing.com/th?id=OHR.PlazaMayor_ZH-CN4576498488_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_UHD.jpg)
 
 ## 归档
 
