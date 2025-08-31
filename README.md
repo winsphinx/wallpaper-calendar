@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250830 - 有鳍且惊艳
+## 20250831 - 彩绘的云，静默的悬崖
 
-###### 阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫
+###### 杰灵的斯科茨布拉夫国家纪念碑‌, 内布拉斯加州,美国
 
-![](https://www.bing.com/th?id=OHR.MaldivesWhaleShark_ZH-CN9975504316_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ScottsBluff_ZH-CN0292735112_UHD.jpg)
 
 ## 归档
 
