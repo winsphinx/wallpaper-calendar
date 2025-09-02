@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250901 - 风景如画的葡萄园
+## 20250902 - 死谷的幽灵
 
-###### 凯撒施图尔，巴登-符腾堡，德国
+###### 骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚
 
-![](https://www.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_UHD.jpg)
 
 ## 归档
 
