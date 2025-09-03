@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250902 - 死谷的幽灵
+## 20250903 - 享受宁静
 
-###### 骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚
+###### 边界水域独木舟区荒野区, 明尼苏达州, 美国
 
-![](https://www.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MinnesotaWaters_ZH-CN6078521418_UHD.jpg)
 
 ## 归档
 
