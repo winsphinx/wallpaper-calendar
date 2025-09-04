@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250903 - 享受宁静
+## 20250904 - 力量的角逐
 
-###### 边界水域独木舟区荒野区, 明尼苏达州, 美国
+###### 灰熊摔跤, 卡特迈国家公园及自然保护区, 阿拉斯加, 美国
 
-![](https://www.bing.com/th?id=OHR.MinnesotaWaters_ZH-CN6078521418_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WrestlingBears_ZH-CN6430637848_UHD.jpg)
 
 ## 归档
 
