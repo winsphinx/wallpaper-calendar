@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250904 - 力量的角逐
+## 20250905 - 完美的夜晚
 
-###### 灰熊摔跤, 卡特迈国家公园及自然保护区, 阿拉斯加, 美国
+###### 太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.WrestlingBears_ZH-CN6430637848_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SunsetPier_ZH-CN1202083395_UHD.jpg)
 
 ## 归档
 
