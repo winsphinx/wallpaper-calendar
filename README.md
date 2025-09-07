@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250906 - 忙碌的一天
+## 20250907 - 淡彩的梦境和静水
 
-###### 棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国
+###### 位于莫特拉瓦河河畔的格但斯克市，波兰
 
-![](https://www.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BlueGdansk_ZH-CN3328928509_UHD.jpg)
 
 ## 归档
 
