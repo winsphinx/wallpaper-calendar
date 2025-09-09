@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250908 - 当天预订
+## 20250909 - 她一根一根地准备着
 
-###### 乌节图书馆，新加坡
+###### 一只雌性欧亚红松鼠正在搬运苔藓，瑞士
 
-![](https://www.bing.com/th?id=OHR.OrchardLibrary_ZH-CN3578982798_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_UHD.jpg)
 
 ## 归档
 
