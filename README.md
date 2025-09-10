@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250909 - 她一根一根地准备着
+## 20250910 - 阳光明媚，赶紧打草
 
-###### 一只雌性欧亚红松鼠正在搬运苔藓，瑞士
+###### 干草捆，北约克郡，英格兰
 
-![](https://www.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_UHD.jpg)
 
 ## 归档
 
