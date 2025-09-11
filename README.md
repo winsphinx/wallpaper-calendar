@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250910 - 阳光明媚，赶紧打草
+## 20250911 - 准备仰望天空吧！
 
-###### 干草捆，北约克郡，英格兰
+###### 蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙
 
-![](https://www.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_UHD.jpg)
 
 ## 归档
 
