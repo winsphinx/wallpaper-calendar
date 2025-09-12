@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250911 - 准备仰望天空吧！
+## 20250912 - 野性畅游，自在徜徉
 
-###### 蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙
+###### 红海中的飞旋海豚群, 阿拉姆港, 埃及
 
-![](https://www.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_UHD.jpg)
 
 ## 归档
 
