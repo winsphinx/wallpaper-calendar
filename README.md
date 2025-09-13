@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250912 - 野性畅游，自在徜徉
+## 20250913 - 崎岖而狂野
 
-###### 红海中的飞旋海豚群, 阿拉姆港, 埃及
+###### 烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国
 
-![](https://www.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_UHD.jpg)
 
 ## 归档
 
