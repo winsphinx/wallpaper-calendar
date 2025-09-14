@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250913 - 崎岖而狂野
+## 20250914 - 苔藓与薄雾
 
-###### 烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国
+###### 奥林匹克国家公园的瀑布, 华盛顿, 美国
 
-![](https://www.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_UHD.jpg)
 
 ## 归档
 
