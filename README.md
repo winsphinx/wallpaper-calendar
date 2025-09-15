@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250914 - 苔藓与薄雾
+## 20250915 - 涉水寻迹
 
-###### 奥林匹克国家公园的瀑布, 华盛顿, 美国
+###### 黑翅长脚鹬, 法国
 
-![](https://www.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_UHD.jpg)
 
 ## 归档
 
