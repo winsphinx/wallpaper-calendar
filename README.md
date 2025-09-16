@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250915 - 涉水寻迹
+## 20250916 - 巨大的成功
 
-###### 黑翅长脚鹬, 法国
+###### 从地球上空225英里处俯瞰墨西哥湾沿岸各州的夜间景象
 
-![](https://www.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OzoneEarth_ZH-CN0993915980_UHD.jpg)
 
 ## 归档
 
