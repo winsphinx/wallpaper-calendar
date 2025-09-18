@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250917 - 成长中的冠冕
+## 20250918 - 爱尔兰岛的西端
 
-###### 迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国
+###### 邓金码头的蛇形楼梯, 凯里郡, 爱尔兰
 
-![](https://www.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_UHD.jpg)
 
 ## 归档
 
