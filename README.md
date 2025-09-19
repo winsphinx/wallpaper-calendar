@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250918 - 爱尔兰岛的西端
+## 20250919 - 千般理由，邀您探索
 
-###### 邓金码头的蛇形楼梯, 凯里郡, 爱尔兰
+###### 千岛群岛地区，圣劳伦斯河，美加边境
 
-![](https://www.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ThousandIslands_ZH-CN3197750437_UHD.jpg)
 
 ## 归档
 
