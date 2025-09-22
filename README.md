@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250921 - 酷毙了
+## 20250922 - 到冬天的中途
 
-###### 海獭，威廉王子湾，阿拉斯加州，美国
+###### 秋日的白杨树，鱼湖国家森林，犹他州，美国
 
-![](https://www.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AspenEquinox_ZH-CN5474695693_UHD.jpg)
 
 ## 归档
 
