@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250922 - 到冬天的中途
+## 20250923 - 树树皆秋色
 
-###### 秋日的白杨树，鱼湖国家森林，犹他州，美国
+###### 航拍中国江苏省常州翠竹公园
 
-![](https://www.bing.com/th?id=OHR.AspenEquinox_ZH-CN5474695693_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_UHD.jpg)
 
 ## 归档
 
