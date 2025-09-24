@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250923 - 树树皆秋色
+## 20250924 - 孤独的巨人
 
-###### 航拍中国江苏省常州翠竹公园
+###### 魔鬼塔国家纪念碑, 怀俄明州，美国
 
-![](https://www.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BearLodge_ZH-CN5880511888_UHD.jpg)
 
 ## 归档
 
