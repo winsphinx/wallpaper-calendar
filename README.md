@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250924 - 孤独的巨人
+## 20250925 - 忠勇的雕刻石
 
-###### 魔鬼塔国家纪念碑, 怀俄明州，美国
+###### 奇陶尔加尔堡, 拉贾斯坦邦, 印度
 
-![](https://www.bing.com/th?id=OHR.BearLodge_ZH-CN5880511888_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_UHD.jpg)
 
 ## 归档
 
