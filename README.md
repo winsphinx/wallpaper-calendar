@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250925 - 忠勇的雕刻石
+## 20250926 - 速度与毛茸茸
 
-###### 奇陶尔加尔堡, 拉贾斯坦邦, 印度
+###### 最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国
 
-![](https://www.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_UHD.jpg)
 
 ## 归档
 
