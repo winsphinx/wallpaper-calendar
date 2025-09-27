@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250926 - 速度与毛茸茸
+## 20250927 - 美丽的星空
 
-###### 最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国
+###### 坦克湖
 
-![](https://www.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_UHD.jpg)
 
 ## 归档
 
