@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250927 - 美丽的星空
+## 20250928 - 品味皮恩扎
 
-###### 坦克湖
+###### 托斯卡纳的皮恩扎镇, 意大利
 
-![](https://www.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_UHD.jpg)
 
 ## 归档
 
