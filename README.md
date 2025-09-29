@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250928 - 品味皮恩扎
+## 20250929 - 彩虹骑行与宁静氛围
 
-###### 托斯卡纳的皮恩扎镇, 意大利
+###### 豪滕镇的彩虹屋, 荷兰
 
-![](https://www.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_UHD.jpg)
 
 ## 归档
 
