@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20250929 - 彩虹骑行与宁静氛围
+## 20250930 - 坚持重要的事情
 
-###### 豪滕镇的彩虹屋, 荷兰
+###### 桉树上的考拉, 大奥特维国家公园, 澳大利亚
 
-![](https://www.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_UHD.jpg)
 
 ## 归档
 
