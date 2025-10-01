@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20250930 - 坚持重要的事情
+## 20251001 - 克拉克山脉的回声
 
-###### 桉树上的考拉, 大奥特维国家公园, 澳大利亚
+###### 克拉克山脉, 内华达山脉, 约塞米蒂国家公园, 加利福尼亚州, 美国
 
-![](https://www.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YosemiteClark_ZH-CN7179533292_UHD.jpg)
 
 ## 归档
 
+| [202510](/202510/README.md)
 | [202509](/202509/README.md)
 | [202508](/202508/README.md)
 | [202507](/202507/README.md)
