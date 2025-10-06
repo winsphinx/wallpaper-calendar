@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251005 - 庆祝智慧！
+## 20251006 - 千里共婵娟
 
-###### 中欧森林里的鬼鸮
+###### 安顺桥中秋灯展，成都，中国
 
-![](https://www.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_UHD.jpg)
 
 ## 归档
 
