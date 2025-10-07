@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251006 - 千里共婵娟
+## 20251007 - 金色的秋日余晖
 
-###### 安顺桥中秋灯展，成都，中国
+###### 里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国
 
-![](https://www.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RidgwayAspens_ZH-CN8735375502_UHD.jpg)
 
 ## 归档
 
