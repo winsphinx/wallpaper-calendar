@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251007 - 金色的秋日余晖
+## 20251008 - 动态伪装
 
-###### 里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国
+###### 白日章鱼, 毛伊岛, 夏威夷, 美国
 
-![](https://www.bing.com/th?id=OHR.RidgwayAspens_ZH-CN8735375502_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OctopusCyanea_ZH-CN8948609460_UHD.jpg)
 
 ## 归档
 
