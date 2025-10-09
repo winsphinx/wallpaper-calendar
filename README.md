@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251008 - 动态伪装
+## 20251009 - 宇宙在绽放
 
-###### 白日章鱼, 毛伊岛, 夏威夷, 美国
+###### ‌詹姆斯·韦伯太空望远镜观测的创生之柱
 
-![](https://www.bing.com/th?id=OHR.OctopusCyanea_ZH-CN8948609460_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_UHD.jpg)
 
 ## 归档
 
