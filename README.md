@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251010 - 思绪之礁
+## 20251011 - 下一站：墨西哥！
 
-###### 莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济
+###### 林鸳鸯，美国
 
-![](https://www.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WoodDuckHen_ZH-CN9558916773_UHD.jpg)
 
 ## 归档
 
