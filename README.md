@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251011 - 下一站：墨西哥！
+## 20251012 - 爱上萨拉纳克
 
-###### 林鸳鸯，美国
+###### 萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国
 
-![](https://www.bing.com/th?id=OHR.WoodDuckHen_ZH-CN9558916773_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_UHD.jpg)
 
 ## 归档
 
