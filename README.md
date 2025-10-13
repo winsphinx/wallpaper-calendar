@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251012 - 爱上萨拉纳克
+## 20251013 - 水声低语
 
-###### 萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国
+###### 温巴赫峡谷瀑布，巴伐利亚州，德国
 
-![](https://www.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_UHD.jpg)
 
 ## 归档
 
