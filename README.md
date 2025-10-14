@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251013 - 水声低语
+## 20251014 - 蓝与白的梦境
 
-###### 温巴赫峡谷瀑布，巴伐利亚州，德国
+###### 伊亚镇，圣托里尼岛，希腊
 
-![](https://www.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_UHD.jpg)
 
 ## 归档
 
