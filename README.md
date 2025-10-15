@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251014 - 蓝与白的梦境
+## 20251015 - 孢子奇遇记
 
-###### 伊亚镇，圣托里尼岛，希腊
+###### 紫蜡蘑，西贝克，华盛顿州，美国
 
-![](https://www.bing.com/th?id=OHR.OiaSantorini_ZH-CN0531650189_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_UHD.jpg)
 
 ## 归档
 
