@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251015 - 孢子奇遇记
+## 20251016 - 幽灵之猫
 
-###### 紫蜡蘑，西贝克，华盛顿州，美国
+###### 欧亚猞猁，西伯利亚
 
-![](https://www.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_UHD.jpg)
 
 ## 归档
 
