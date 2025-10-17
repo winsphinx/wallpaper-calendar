@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251016 - 幽灵之猫
+## 20251017 - 爱上密歇根
 
-###### 欧亚猞猁，西伯利亚
+###### 罗克河瀑布，上半岛，密歇根州，美国
 
-![](https://www.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_UHD.jpg)
 
 ## 归档
 
