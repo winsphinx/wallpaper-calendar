@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251017 - 爱上密歇根
+## 20251018 - 那座铭记往昔的山丘
 
-###### 罗克河瀑布，上半岛，密歇根州，美国
+###### 西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国
 
-![](https://www.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_UHD.jpg)
 
 ## 归档
 
