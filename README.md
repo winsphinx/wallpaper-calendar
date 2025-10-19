@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251018 - 那座铭记往昔的山丘
+## 20251019 - 痴迷科学
 
-###### 西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国
+###### 即将收获的苹果，明尼苏达州，美国
 
-![](https://www.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_UHD.jpg)
 
 ## 归档
 
