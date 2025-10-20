@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251019 - 痴迷科学
+## 20251020 - 慢节奏的生活
 
-###### 即将收获的苹果，明尼苏达州，美国
+###### 霍氏树懒，厄瓜多尔
 
-![](https://www.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_UHD.jpg)
 
 ## 归档
 
