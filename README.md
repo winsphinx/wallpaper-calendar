@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251020 - 慢节奏的生活
+## 20251021 - 鸟喙的故事
 
-###### 霍氏树懒，厄瓜多尔
+###### 哥斯达黎加的厚嘴巨嘴鸟
 
-![](https://www.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_UHD.jpg)
 
 ## 归档
 
