@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251021 - 鸟喙的故事
+## 20251022 - 刻在石头上
 
-###### 哥斯达黎加的厚嘴巨嘴鸟
+###### 贝洛格拉齐克石林，保加利亚
 
-![](https://www.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_UHD.jpg)
 
 ## 归档
 
