@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251022 - 刻在石头上
+## 20251023 - 雪中深情
 
-###### 贝洛格拉齐克石林，保加利亚
+###### 雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度
 
-![](https://www.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_UHD.jpg)
 
 ## 归档
 
