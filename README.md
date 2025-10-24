@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251023 - 雪中深情
+## 20251024 - 从“灰色幽灵”到幽灵传说
 
-###### 雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度
+###### 玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国
 
-![](https://www.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_UHD.jpg)
 
 ## 归档
 
