@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251025 - 芬兰的活泥炭地
+## 20251026 - 南瓜日，今日登场！
 
-###### 马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰
+###### 北卡罗来纳州的南瓜农场, 美国
 
-![](https://www.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_UHD.jpg)
 
 ## 归档
 
