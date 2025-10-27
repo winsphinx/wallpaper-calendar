@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251026 - 南瓜日，今日登场！
+## 20251027 - 千年秘境
 
-###### 北卡罗来纳州的南瓜农场, 美国
+###### 被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国
 
-![](https://www.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_UHD.jpg)
 
 ## 归档
 
