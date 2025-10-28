@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251027 - 千年秘境
+## 20251028 - 通往石之奇境的大门
 
-###### 被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国
+###### 安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克
 
-![](https://www.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_UHD.jpg)
 
 ## 归档
 
