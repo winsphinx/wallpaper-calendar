@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251028 - 通往石之奇境的大门
+## 20251029 - 时光扎根
 
-###### 安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克
+###### 法纳尔森林里的古老月桂树，马德拉群岛，葡萄牙
 
-![](https://www.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FanalForest_ZH-CN2203572101_UHD.jpg)
 
 ## 归档
 
