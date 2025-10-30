@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251029 - 时光扎根
+## 20251030 - 蹄声、色彩与传承
 
-###### 法纳尔森林里的古老月桂树，马德拉群岛，葡萄牙
+###### 杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度
 
-![](https://www.bing.com/th?id=OHR.FanalForest_ZH-CN2203572101_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_UHD.jpg)
 
 ## 归档
 
