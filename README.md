@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251030 - 蹄声、色彩与传承
+## 20251031 - 在万圣节的魔咒之下
 
-###### 杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度
+###### 布兰城堡入口, 布拉索夫, 罗马尼亚
 
-![](https://www.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_UHD.jpg)
 
 ## 归档
 
