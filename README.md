@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20251031 - 在万圣节的魔咒之下
+## 20251101 - 古老血脉的兽群
 
-###### 布兰城堡入口, 布拉索夫, 罗马尼亚
+###### 野牛在温泉边吃草,  黄石国家公园, 怀俄明州, 美国
 
-![](https://www.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_UHD.jpg)
 
 ## 归档
 
+| [202511](/202511/README.md)
 | [202510](/202510/README.md)
 | [202509](/202509/README.md)
 | [202508](/202508/README.md)
