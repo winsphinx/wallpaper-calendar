@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251101 - 古老血脉的兽群
+## 20251102 - 竹林吐纳清气，枫叶绚烂如火
 
-###### 野牛在温泉边吃草,  黄石国家公园, 怀俄明州, 美国
+###### 岚山缤纷的枫叶与竹林, 京都, 日本
 
-![](https://www.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_UHD.jpg)
 
 ## 归档
 
