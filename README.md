@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251102 - 竹林吐纳清气，枫叶绚烂如火
+## 20251103 - 随波轻舞
 
-###### 岚山缤纷的枫叶与竹林, 京都, 日本
+###### 在太平洋中游泳的水母, 格雷罗, 墨西哥
 
-![](https://www.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_UHD.jpg)
 
 ## 归档
 
