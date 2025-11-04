@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251103 - 随波轻舞
+## 20251104 - 小心空隙，桥面将开启！
 
-###### 在太平洋中游泳的水母, 格雷罗, 墨西哥
+###### 塔桥, 伦敦, 英格兰
 
-![](https://www.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_UHD.jpg)
 
 ## 归档
 
