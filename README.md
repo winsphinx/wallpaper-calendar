@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251105 - 秋天来了，你开心吗？
+## 20251106 - 满天心愿
 
-###### 佩尼亚罗亚山毛榉森林, 蒙卡约自然公园, 萨拉戈萨, 阿拉贡, 西班牙
+###### 哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国
 
-![](https://www.bing.com/th?id=OHR.MoncayoAutumn_ZH-CN5187959516_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_UHD.jpg)
 
 ## 归档
 
