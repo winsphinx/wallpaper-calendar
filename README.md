@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251107 - 魅力十足的巨型动物
+## 20251108 - 班登的明星岩石
 
-###### 丘吉尔的北极熊，曼尼托巴省，加拿大
+###### 班登海滩的海蚀柱，俄勒冈州，美国
 
-![](https://www.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_UHD.jpg)
 
 ## 归档
 
