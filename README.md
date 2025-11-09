@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251108 - 班登的明星岩石
+## 20251109 - 从前有一颗星星
 
-###### 班登海滩的海蚀柱，俄勒冈州，美国
+###### 礁湖星云中的星际云，由哈勃太空望远镜拍摄
 
-![](https://www.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_UHD.jpg)
 
 ## 归档
 
