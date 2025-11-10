@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251109 - 从前有一颗星星
+## 20251110 - 草原之下的生命
 
-###### 礁湖星云中的星际云，由哈勃太空望远镜拍摄
+###### 土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国
 
-![](https://www.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_UHD.jpg)
 
 ## 归档
 
