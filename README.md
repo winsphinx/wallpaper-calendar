@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251110 - 草原之下的生命
+## 20251111 - 传奇之地
 
-###### 土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国
+###### 条顿堡森林的伊克斯坦岩石层，德国
 
-![](https://www.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_UHD.jpg)
 
 ## 归档
 
