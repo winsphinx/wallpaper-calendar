@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251111 - 传奇之地
+## 20251112 - 条条大路通罗马
 
-###### 条顿堡森林的伊克斯坦岩石层，德国
+###### 斗兽场鸟瞰图，罗马，意大利
 
-![](https://www.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_UHD.jpg)
 
 ## 归档
 
