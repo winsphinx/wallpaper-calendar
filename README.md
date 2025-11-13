@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251112 - 条条大路通罗马
+## 20251113 - 星光下的颤动之树
 
-###### 斗兽场鸟瞰图，罗马，意大利
+###### 夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚
 
-![](https://www.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_UHD.jpg)
 
 ## 归档
 
