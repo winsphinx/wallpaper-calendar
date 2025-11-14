@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251113 - 星光下的颤动之树
+## 20251114 - 快节奏时代，别忘了慢下来
 
-###### 夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚
+###### 海牛妈妈和幼崽，水晶河，佛罗里达州，美国
 
-![](https://www.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_UHD.jpg)
 
 ## 归档
 
