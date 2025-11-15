@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251114 - 快节奏时代，别忘了慢下来
+## 20251115 - 像日光那样“弯道飞驰”
 
-###### 海牛妈妈和幼崽，水晶河，佛罗里达州，美国
+###### 秋天的伊吕波坂，日光市，栃木县，日本
 
-![](https://www.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IrohazakaAutumn_ZH-CN8146412245_UHD.jpg)
 
 ## 归档
 
