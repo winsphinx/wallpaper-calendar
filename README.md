@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251115 - 像日光那样“弯道飞驰”
+## 20251116 - 承载过往的篇章
 
-###### 秋天的伊吕波坂，日光市，栃木县，日本
+###### 里昂的一条穿廊，法国
 
-![](https://www.bing.com/th?id=OHR.IrohazakaAutumn_ZH-CN8146412245_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LyonTraboules_ZH-CN8476826325_UHD.jpg)
 
 ## 归档
 
