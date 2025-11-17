@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251116 - 承载过往的篇章
+## 20251117 - 小径在召唤
 
-###### 里昂的一条穿廊，法国
+###### 谢南多厄国家公园的秋色，弗吉尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.LyonTraboules_ZH-CN8476826325_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_UHD.jpg)
 
 ## 归档
 
