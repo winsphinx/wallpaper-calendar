@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251117 - 小径在召唤
+## 20251118 - 秋日里的羽翼明星
 
-###### 谢南多厄国家公园的秋色，弗吉尼亚州，美国
+###### 雄性棕胁秋沙鸭，俄勒冈州，美国
 
-![](https://www.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_UHD.jpg)
 
 ## 归档
 
