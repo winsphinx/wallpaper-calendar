@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251118 - 秋日里的羽翼明星
+## 20251119 - 石头与符号，诉说一个民族的故事
 
-###### 雄性棕胁秋沙鸭，俄勒冈州，美国
+###### 匈牙利国会大厦，布达佩斯，匈牙利
 
-![](https://www.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_UHD.jpg)
 
 ## 归档
 
