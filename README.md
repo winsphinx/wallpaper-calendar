@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251120 - 颂扬保护与美
+## 20251121 - 带着“你好”的问候
 
-###### 查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西
+###### 罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国
 
-![](https://www.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_UHD.jpg)
 
 ## 归档
 
