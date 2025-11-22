@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251121 - 带着“你好”的问候
+## 20251122 - 守护江河的佛像
 
-###### 罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国
+###### 乐山大佛, 四川, 中国
 
-![](https://www.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_UHD.jpg)
 
 ## 归档
 
