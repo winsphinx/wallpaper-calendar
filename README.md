@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251122 - 守护江河的佛像
+## 20251123 - 大自然的秘密代码
 
-###### 乐山大佛, 四川, 中国
+###### 马达加斯加菊石化石
 
-![](https://www.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_UHD.jpg)
 
 ## 归档
 
