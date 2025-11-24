@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251123 - 大自然的秘密代码
+## 20251124 - 岩石中的秘密
 
-###### 马达加斯加菊石化石
+###### 瓜廖尔堡, ‌中央邦, 印度
 
-![](https://www.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_UHD.jpg)
 
 ## 归档
 
