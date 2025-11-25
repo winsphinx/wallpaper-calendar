@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251124 - 岩石中的秘密
+## 20251125 - 爱情、幸运与硬币
 
-###### 瓜廖尔堡, ‌中央邦, 印度
+###### 罗马的特雷维喷泉, 意大利
 
-![](https://www.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_UHD.jpg)
 
 ## 归档
 
