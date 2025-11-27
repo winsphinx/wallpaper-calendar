@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251126 - 让树叶诉说历史
+## 20251127 - 潮起潮落的坚守
 
-###### 特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙
+###### 伊斯特本码头, 东萨塞克斯郡, 英格兰
 
-![](https://www.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_UHD.jpg)
 
 ## 归档
 
