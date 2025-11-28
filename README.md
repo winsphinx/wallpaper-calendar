@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251127 - 潮起潮落的坚守
+## 20251128 - 白色回响
 
-###### 伊斯特本码头, 东萨塞克斯郡, 英格兰
+###### 瓦尔·布兰德特, 布雷西亚, 伦巴第大区, 意大利
 
-![](https://www.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.InvernoItalia_ZH-CN1329490862_UHD.jpg)
 
 ## 归档
 
