@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251128 - 白色回响
+## 20251129 - 哎呀，好冷啊！
 
-###### 瓦尔·布兰德特, 布雷西亚, 伦巴第大区, 意大利
+###### 荷兰梵高国家森林公园的马鹿雄鹿, 荷兰
 
-![](https://www.bing.com/th?id=OHR.InvernoItalia_ZH-CN1329490862_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DeerVeluwe_ZH-CN1438758687_UHD.jpg)
 
 ## 归档
 
