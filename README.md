@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251129 - 哎呀，好冷啊！
+## 20251130 - 一路闪耀
 
-###### 荷兰梵高国家森林公园的马鹿雄鹿, 荷兰
+###### 莱比锡圣诞集市, 德国
 
-![](https://www.bing.com/th?id=OHR.DeerVeluwe_ZH-CN1438758687_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_UHD.jpg)
 
 ## 归档
 
