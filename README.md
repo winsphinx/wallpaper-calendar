@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20251130 - 一路闪耀
+## 20251201 - 冰雪凝息之处
 
-###### 莱比锡圣诞集市, 德国
+###### 冰山上天然形成的拱门, 南极洲
 
-![](https://www.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_UHD.jpg)
 
 ## 归档
 
+| [202512](/202512/README.md)
 | [202511](/202511/README.md)
 | [202510](/202510/README.md)
 | [202509](/202509/README.md)
