@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251201 - 冰雪凝息之处
+## 20251202 - 一景胜千言
 
-###### 冰山上天然形成的拱门, 南极洲
+###### 柳树湖与布莱克本山, 兰格尔－圣伊利亚斯国家公园暨保护区, 阿拉斯加州, 美国
 
-![](https://www.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WillowLake_ZH-CN9798614021_UHD.jpg)
 
 ## 归档
 
