@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251203 - 曙光中的鹤影
+## 20251204 - 为生存而疾驰
 
-###### 日出时的沙丘鹤, ‌阿帕奇森林国家野生动物保护区, 新墨西哥州, 美国
+###### 马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚
 
-![](https://www.bing.com/th?id=OHR.BosqueCranes_ZH-CN1838488224_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_UHD.jpg)
 
 ## 归档
 
