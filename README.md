@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251204 - 为生存而疾驰
+## 20251205 - 绘制星图的城市
 
-###### 马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚
+###### 科潘的玛雅遗址，洪都拉斯
 
-![](https://www.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_UHD.jpg)
 
 ## 归档
 
