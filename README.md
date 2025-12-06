@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251205 - 绘制星图的城市
+## 20251206 - 佛罗里达州的生命湿地
 
-###### 科潘的玛雅遗址，洪都拉斯
+###### 大沼泽地国家公园的蜘蛛网，佛罗里达州，美国
 
-![](https://www.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EvergladesSunrise_ZH-CN2298606730_UHD.jpg)
 
 ## 归档
 
