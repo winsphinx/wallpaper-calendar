@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251206 - 佛罗里达州的生命湿地
+## 20251207 - 雪落下的声音
 
-###### 大沼泽地国家公园的蜘蛛网，佛罗里达州，美国
+###### 雪中的故宫，中国北京
 
-![](https://www.bing.com/th?id=OHR.EvergladesSunrise_ZH-CN2298606730_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_UHD.jpg)
 
 ## 归档
 
