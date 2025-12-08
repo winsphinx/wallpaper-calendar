@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251207 - 雪落下的声音
+## 20251208 - 一切安详，一切明亮
 
-###### 雪中的故宫，中国北京
+###### 多马索的建筑上的圣诞彩灯，科莫湖，意大利
 
-![](https://www.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_UHD.jpg)
 
 ## 归档
 
