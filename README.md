@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251208 - 一切安详，一切明亮
+## 20251209 - 说“茄子”……或者“青草”
 
-###### 多马索的建筑上的圣诞彩灯，科莫湖，意大利
+###### 原驼，北角，瓦尔德斯半岛, 阿根廷
 
-![](https://www.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LlamaDay_ZH-CN2646855786_UHD.jpg)
 
 ## 归档
 
