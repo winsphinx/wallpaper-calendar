@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251209 - 说“茄子”……或者“青草”
+## 20251210 - 文化交汇之地
 
-###### 原驼，北角，瓦尔德斯半岛, 阿根廷
+###### 科尔多瓦清真寺大教堂的内部，安达卢西亚，西班牙
 
-![](https://www.bing.com/th?id=OHR.LlamaDay_ZH-CN2646855786_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CordobaCathedral_ZH-CN4603063077_UHD.jpg)
 
 ## 归档
 
