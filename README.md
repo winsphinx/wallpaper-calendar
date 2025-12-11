@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251210 - 文化交汇之地
+## 20251211 - 天地相接之处
 
-###### 科尔多瓦清真寺大教堂的内部，安达卢西亚，西班牙
+###### 从伦佐拉山口眺望珠穆朗玛峰日落时分的峰顶，尼泊尔
 
-![](https://www.bing.com/th?id=OHR.CordobaCathedral_ZH-CN4603063077_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EverestGlow_ZH-CN4985720231_UHD.jpg)
 
 ## 归档
 
