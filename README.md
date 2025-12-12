@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251211 - 天地相接之处
+## 20251212 - 点亮节日的红色植物
 
-###### 从伦佐拉山口眺望珠穆朗玛峰日落时分的峰顶，尼泊尔
+###### 有斑点的一品红
 
-![](https://www.bing.com/th?id=OHR.EverestGlow_ZH-CN4985720231_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpeckledPoinsettia_ZH-CN3726763235_UHD.jpg)
 
 ## 归档
 
