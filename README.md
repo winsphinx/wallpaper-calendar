@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251214 - 假日鸟类大比拼
+## 20251215 - 静谧水波，闪耀灯影
 
-###### 簇山雀栖息在松枝上, 马萨诸塞州, 美国
+###### 斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰
 
-![](https://www.bing.com/th?id=OHR.TuftedTitmouse_ZH-CN4154825372_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_UHD.jpg)
 
 ## 归档
 
