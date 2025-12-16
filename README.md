@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251215 - 静谧水波，闪耀灯影
+## 20251216 - 小帽子，大能量
 
-###### 斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰
+###### 圣诞市场上的手工小矮人
 
-![](https://www.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_UHD.jpg)
 
 ## 归档
 
