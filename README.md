@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251216 - 小帽子，大能量
+## 20251217 - 皮毛、霜冻和盛宴
 
-###### 圣诞市场上的手工小矮人
+###### 在诺森伯兰郡的欧亚红松鼠, 英格兰
 
-![](https://www.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_UHD.jpg)
 
 ## 归档
 
