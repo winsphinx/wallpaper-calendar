@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251217 - 皮毛、霜冻和盛宴
+## 20251218 - 犹他州的时光层叠
 
-###### 在诺森伯兰郡的欧亚红松鼠, 英格兰
+###### 太阳神庙，圆顶礁国家公园, 犹他州, 美国
 
-![](https://www.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CathedralValley_ZH-CN5237441521_UHD.jpg)
 
 ## 归档
 
