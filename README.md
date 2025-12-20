@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251219 - 高山的悠久历史
+## 20251220 - 闪烁的纸星星
 
-###### 博尔米奥的雪景，伦巴第大区，意大利
+###### 圣诞星形灯笼，德国
 
-![](https://www.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_UHD.jpg)
 
 ## 归档
 
