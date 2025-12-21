@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251220 - 闪烁的纸星星
+## 20251221 - 美丽的雾凇景色
 
-###### 圣诞星形灯笼，德国
+###### 美丽的雾凇景色，大庆市，黑龙江省，中国
 
-![](https://www.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_UHD.jpg)
 
 ## 归档
 
