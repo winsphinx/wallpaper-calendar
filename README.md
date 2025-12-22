@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251221 - 美丽的雾凇景色
+## 20251222 - 历史与现代的交融
 
-###### 美丽的雾凇景色，大庆市，黑龙江省，中国
+###### 法兰克福老桥，德国
 
-![](https://www.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_UHD.jpg)
 
 ## 归档
 
