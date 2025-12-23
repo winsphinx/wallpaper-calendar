@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251222 - 历史与现代的交融
+## 20251223 - 当节日的魔法踩着蹄声而来
 
-###### 法兰克福老桥，德国
+###### 冬雪中的驯鹿，拉普兰德，芬兰
 
-![](https://www.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_UHD.jpg)
 
 ## 归档
 
