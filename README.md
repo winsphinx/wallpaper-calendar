@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251223 - 当节日的魔法踩着蹄声而来
+## 20251224 - 流动的传统
 
-###### 冬雪中的驯鹿，拉普兰德，芬兰
+###### 巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国
 
-![](https://www.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_UHD.jpg)
 
 ## 归档
 
