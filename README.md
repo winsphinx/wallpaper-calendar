@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251225 - 微缩世界，无尽奇想
+## 20251226 - 打破盒子的传统
 
-###### 海德堡圣诞市场上的雪球，德国
+###### 索尔兹伯里大教堂，威尔特郡，英格兰
 
-![](https://www.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_UHD.jpg)
 
 ## 归档
 
