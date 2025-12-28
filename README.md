@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251227 - 冬之碎片
+## 20251228 - 仍存野性
 
-###### 苏必利尔湖沿岸的冰层，大马雷，明尼苏达州，美国
+###### 马达加斯加的黑白环尾狐猴
 
-![](https://www.bing.com/th?id=OHR.SuperiorIceMN_ZH-CN5339027344_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RuffedLemur_ZH-CN5636795490_UHD.jpg)
 
 ## 归档
 
