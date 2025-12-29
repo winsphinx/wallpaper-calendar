@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251228 - 仍存野性
+## 20251229 - 一座比城市更悠久的教堂
 
-###### 马达加斯加的黑白环尾狐猴
+###### 阿尼遗址的圣格雷戈里教堂，卡尔斯省，土耳其
 
-![](https://www.bing.com/th?id=OHR.RuffedLemur_ZH-CN5636795490_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AniTurkey_ZH-CN5838141955_UHD.jpg)
 
 ## 归档
 
