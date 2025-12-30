@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251229 - 一座比城市更悠久的教堂
+## 20251230 - 新太阳的诞生
 
-###### 阿尼遗址的圣格雷戈里教堂，卡尔斯省，土耳其
+###### 晨光透过结霜的树木洒下，瑞典
 
-![](https://www.bing.com/th?id=OHR.AniTurkey_ZH-CN5838141955_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_UHD.jpg)
 
 ## 归档
 
