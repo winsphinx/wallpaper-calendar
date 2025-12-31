@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20251230 - 新太阳的诞生
+## 20251231 - 柏林，新年之桥
 
-###### 晨光透过结霜的树木洒下，瑞典
+###### 除夕夜，奥伯鲍姆桥，柏林，德国
 
-![](https://www.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_UHD.jpg)
 
 ## 归档
 
