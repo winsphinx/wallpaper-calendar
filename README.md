@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20251231 - 柏林，新年之桥
+## 20260101 - 伸个懒腰，迈向新年！
 
-###### 除夕夜，奥伯鲍姆桥，柏林，德国
+###### 正在睡觉的北极狐
 
-![](https://www.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NewYearFox_ZH-CN9312618796_UHD.jpg)
 
 ## 归档
 
+| [202601](/202601/README.md)
 | [202512](/202512/README.md)
 | [202511](/202511/README.md)
 | [202510](/202510/README.md)
