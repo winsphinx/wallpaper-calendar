@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260102 - 威尼斯的灵魂
+## 20260103 - 传奇故事前的篇章
 
-###### 威尼斯鸟瞰图, 意大利
+###### 劳特布隆嫩的施陶巴赫瀑布, 伯尔尼州, 瑞士
 
-![](https://www.bing.com/th?id=OHR.VeniceView_ZH-CN3088407995_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_UHD.jpg)
 
 ## 归档
 
