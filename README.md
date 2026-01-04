@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260103 - 传奇故事前的篇章
+## 20260104 - 王者视野
 
-###### 劳特布隆嫩的施陶巴赫瀑布, 伯尔尼州, 瑞士
+###### 国王山, 楚加奇山脉, 阿拉斯加, 美国
 
-![](https://www.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_UHD.jpg)
 
 ## 归档
 
