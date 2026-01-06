@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260105 - 高角羚群紧急戒备
+## 20260106 - 努克的慵懒时光
 
-###### 一群高角羚, 隆多洛齐野生动物保护区, 南非
+###### 努克, 格陵兰
 
-![](https://www.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_UHD.jpg)
 
 ## 归档
 
