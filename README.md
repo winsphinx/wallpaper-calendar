@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260106 - 努克的慵懒时光
+## 20260107 - 古老岩石的传奇
 
-###### 努克, 格陵兰
+###### 拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国
 
-![](https://www.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_UHD.jpg)
 
 ## 归档
 
