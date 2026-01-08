@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260107 - 古老岩石的传奇
+## 20260108 - 废墟之上，椋鸟群舞
 
-###### 拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国
+###### 椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰
 
-![](https://www.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_UHD.jpg)
 
 ## 归档
 
