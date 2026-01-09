@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260108 - 废墟之上，椋鸟群舞
+## 20260109 - 时光在此处茁壮成长
 
-###### 椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰
+###### 缪尔树林国家保护区的巨型红杉树林, 加利福尼亚州, 美国
 
-![](https://www.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_UHD.jpg)
 
 ## 归档
 
