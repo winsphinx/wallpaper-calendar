@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260110 - 纯粹的瑞士魔力
+## 20260111 - 从抗拒到绽放
 
-###### 日出时分，马特洪峰的倒影映照在斯特利湖中, 采尔马特, 瑞士
+###### 舍夫沙万的蓝色墙壁, 摩洛哥
 
-![](https://www.bing.com/th?id=OHR.MatterhornSunrise_ZH-CN3171879631_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BlueMorocco_ZH-CN3296596109_UHD.jpg)
 
 ## 归档
 
