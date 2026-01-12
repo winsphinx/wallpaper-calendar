@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260111 - 从抗拒到绽放
+## 20260112 - 水獭之国爱沙尼亚
 
-###### 舍夫沙万的蓝色墙壁, 摩洛哥
+###### 欧亚水獭和幼崽, 爱沙尼亚
 
-![](https://www.bing.com/th?id=OHR.BlueMorocco_ZH-CN3296596109_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SnowOtters_ZH-CN3563991803_UHD.jpg)
 
 ## 归档
 
