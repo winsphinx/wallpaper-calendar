@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260112 - 水獭之国爱沙尼亚
+## 20260113 - 苹果韵，旧时光
 
-###### 欧亚水獭和幼崽, 爱沙尼亚
+###### 克卢伊德谷, 威尔士
 
-![](https://www.bing.com/th?id=OHR.SnowOtters_ZH-CN3563991803_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_UHD.jpg)
 
 ## 归档
 
