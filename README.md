@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260113 - 苹果韵，旧时光
+## 20260114 - 帕拉米蒂的历史之阶
 
-###### 克卢伊德谷, 威尔士
+###### 帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊
 
-![](https://www.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_UHD.jpg)
 
 ## 归档
 
