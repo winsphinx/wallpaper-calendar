@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260114 - 帕拉米蒂的历史之阶
+## 20260115 - 小村庄，大视野
 
-###### 帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊
+###### 雷讷渔村, 挪威
 
-![](https://www.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_UHD.jpg)
 
 ## 归档
 
