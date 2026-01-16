@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260115 - 小村庄，大视野
+## 20260116 - 眼神对上了
 
-###### 雷讷渔村, 挪威
+###### 埃托沙国家公园的豹子，纳米比亚
 
-![](https://www.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_UHD.jpg)
 
 ## 归档
 
