@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260116 - 眼神对上了
+## 20260117 - 普雷比希托广场上的穹顶
 
-###### 埃托沙国家公园的豹子，纳米比亚
+###### 保罗圣方济圣殿，那不勒斯，意大利
 
-![](https://www.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_UHD.jpg)
 
 ## 归档
 
