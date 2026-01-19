@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260118 - 伪装成沙漠的奇境
+## 20260119 - 大自然的波普艺术
 
-###### 白沙国家公园，新墨西哥州，美国
+###### 亚伯拉罕湖冰封景象，艾伯塔省，加拿大
 
-![](https://www.bing.com/th?id=OHR.WhiteSandsNM_ZH-CN7070772772_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BubblesAbraham_ZH-CN7203734882_UHD.jpg)
 
 ## 归档
 
