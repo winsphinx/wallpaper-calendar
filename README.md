@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260119 - 大自然的波普艺术
+## 20260120 - 冬季里的呆萌小可爱
 
-###### 亚伯拉罕湖冰封景象，艾伯塔省，加拿大
+###### 栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省
 
-![](https://www.bing.com/th?id=OHR.BubblesAbraham_ZH-CN7203734882_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TheGreatColdY25_ZH-CN7239762815_UHD.jpg)
 
 ## 归档
 
