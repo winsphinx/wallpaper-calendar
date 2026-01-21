@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260120 - 冬季里的呆萌小可爱
+## 20260121 - 冬日白雪中的一抹红
 
-###### 栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省
+###### 欧亚红松鼠
 
-![](https://www.bing.com/th?id=OHR.TheGreatColdY25_ZH-CN7239762815_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_UHD.jpg)
 
 ## 归档
 
