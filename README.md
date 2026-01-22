@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260121 - 冬日白雪中的一抹红
+## 20260122 - 波西米亚温泉故事
 
-###### 欧亚红松鼠
+###### 卡罗维瓦利，波西米亚，捷克共和国
 
-![](https://www.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_UHD.jpg)
 
 ## 归档
 
