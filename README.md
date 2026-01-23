@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260122 - 波西米亚温泉故事
+## 20260123 - 霜雪中的盛宴
 
-###### 卡罗维瓦利，波西米亚，捷克共和国
+###### 绵羊在雪地里吃草，冰岛
 
-![](https://www.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_UHD.jpg)
 
 ## 归档
 
