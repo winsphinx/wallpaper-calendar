@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260123 - 霜雪中的盛宴
+## 20260124 - 瑞士山间的短逃离
 
-###### 绵羊在雪地里吃草，冰岛
+###### 阿尔卑斯山脉的安德马特小镇，瑞士
 
-![](https://www.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_UHD.jpg)
 
 ## 归档
 
