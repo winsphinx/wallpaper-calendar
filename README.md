@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260124 - 瑞士山间的短逃离
+## 20260125 - 传统熠熠生辉
 
-###### 阿尔卑斯山脉的安德马特小镇，瑞士
+###### 伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰
 
-![](https://www.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_UHD.jpg)
 
 ## 归档
 
