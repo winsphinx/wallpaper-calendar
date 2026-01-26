@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260125 - 传统熠熠生辉
+## 20260126 - 巴伐利亚的瑰宝
 
-###### 伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰
+###### 新天鹅堡，巴伐利亚州，德国
 
-![](https://www.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NeuschwansteinWinter_ZH-CN4972014681_UHD.jpg)
 
 ## 归档
 
