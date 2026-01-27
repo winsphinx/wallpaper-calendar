@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260126 - 巴伐利亚的瑰宝
+## 20260127 - 羽翼预告：前方有鹈鹕
 
-###### 新天鹅堡，巴伐利亚州，德国
+###### 卷羽鹈鹕，凯尔基尼湖，希腊
 
-![](https://www.bing.com/th?id=OHR.NeuschwansteinWinter_ZH-CN4972014681_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_UHD.jpg)
 
 ## 归档
 
