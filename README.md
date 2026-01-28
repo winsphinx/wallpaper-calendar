@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260127 - 羽翼预告：前方有鹈鹕
+## 20260128 - 随河而行
 
-###### 卷羽鹈鹕，凯尔基尼湖，希腊
+###### 旺格努伊国家公园，雷塔鲁克，新西兰
 
-![](https://www.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WhanganuiPark_ZH-CN5664518836_UHD.jpg)
 
 ## 归档
 
