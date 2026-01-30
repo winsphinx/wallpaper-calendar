@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260129 - 密尔沃基的传奇故事
+## 20260130 - 海潮退却之处
 
-###### 密尔沃基市政厅的八层开放式中庭，威斯康星州，美国
+###### 马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰
 
-![](https://www.bing.com/th?id=OHR.MilwaukeeHall_ZH-CN5779477975_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_UHD.jpg)
 
 ## 归档
 
