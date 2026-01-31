@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260130 - 海潮退却之处
+## 20260131 - 一见钟情
 
-###### 马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰
+###### 平原斑马, 埃托沙国家公园, 纳米比亚
 
-![](https://www.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_UHD.jpg)
 
 ## 归档
 
