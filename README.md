@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20260131 - 一见钟情
+## 20260201 - 奇迹之墙
 
-###### 平原斑马, 埃托沙国家公园, 纳米比亚
+###### 奥林达的彩色房子, 巴西
 
-![](https://www.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_UHD.jpg)
 
 ## 归档
 
+| [202602](/202602/README.md)
 | [202601](/202601/README.md)
 | [202512](/202512/README.md)
 | [202511](/202511/README.md)
