@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260201 - 奇迹之墙
+## 20260202 - 影子的承诺
 
-###### 奥林达的彩色房子, 巴西
+###### 阿尔卑斯山土拨鼠, 霍赫陶恩国家公园, 奥地利
 
-![](https://www.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_UHD.jpg)
 
 ## 归档
 
