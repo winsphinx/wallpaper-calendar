@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260202 - 影子的承诺
+## 20260203 - 太浩湖视觉盛宴
 
-###### 阿尔卑斯山土拨鼠, 霍赫陶恩国家公园, 奥地利
+###### 翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国
 
-![](https://www.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_UHD.jpg)
 
 ## 归档
 
