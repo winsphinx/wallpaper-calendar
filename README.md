@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260203 - 太浩湖视觉盛宴
+## 20260204 - 优雅掠过天际
 
-###### 翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国
+###### 雪中​​的红鸢
 
-![](https://www.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_UHD.jpg)
 
 ## 归档
 
