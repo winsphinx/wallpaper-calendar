@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260204 - 优雅掠过天际
+## 20260205 - 困在网格里
 
-###### 雪中​​的红鸢
+###### 戈佐岛上的盐田, 马耳他
 
-![](https://www.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaltaSalt_ZH-CN7025158187_UHD.jpg)
 
 ## 归档
 
