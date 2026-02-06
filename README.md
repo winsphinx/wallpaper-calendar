@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260205 - 困在网格里
+## 20260206 - 拉古塞拉——奥运赛季的巅峰
 
-###### 戈佐岛上的盐田, 马耳他
+###### 贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利
 
-![](https://www.bing.com/th?id=OHR.MaltaSalt_ZH-CN7025158187_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GiauPass_ZH-CN3901214501_UHD.jpg)
 
 ## 归档
 
