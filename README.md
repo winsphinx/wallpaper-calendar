@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260206 - 拉古塞拉——奥运赛季的巅峰
+## 20260207 - 在盐沼与天空之间，万物静谧
 
-###### 贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利
+###### 玻利维亚乌尤尼盐湖
 
-![](https://www.bing.com/th?id=OHR.GiauPass_ZH-CN3901214501_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SalarUyuni_ZH-CN4163237089_UHD.jpg)
 
 ## 归档
 
