@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260207 - 在盐沼与天空之间，万物静谧
+## 20260208 - 从宁静的夜晚到充满冒险的白天
 
-###### 玻利维亚乌尤尼盐湖
+###### 科孚岛的夜晚, 希腊
 
-![](https://www.bing.com/th?id=OHR.SalarUyuni_ZH-CN4163237089_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_UHD.jpg)
 
 ## 归档
 
