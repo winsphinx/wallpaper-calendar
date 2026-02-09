@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260208 - 从宁静的夜晚到充满冒险的白天
+## 20260209 - 斑纹流转
 
-###### 科孚岛的夜晚, 希腊
+###### 阿穆尔豹猫，俄罗斯
 
-![](https://www.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_UHD.jpg)
 
 ## 归档
 
