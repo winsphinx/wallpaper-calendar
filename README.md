@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260209 - 斑纹流转
+## 20260210 - 海妖歌唱之处
 
-###### 阿穆尔豹猫，俄罗斯
+###### 埃斯韦德拉岛和埃斯韦德拉内尔岛，伊维萨岛，西班牙
 
-![](https://www.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IbizaIslets_ZH-CN4580106286_UHD.jpg)
 
 ## 归档
 
