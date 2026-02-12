@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260211 - 对比之谷
+## 20260212 - 聚焦进化
 
-###### 死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国
+###### 蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔
 
-![](https://www.bing.com/th?id=OHR.BadwaterFlats_ZH-CN4713617982_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_UHD.jpg)
 
 ## 归档
 
