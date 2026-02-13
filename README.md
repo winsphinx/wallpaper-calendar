@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260212 - 聚焦进化
+## 20260213 - 为拉近距离而建
 
-###### 蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔
+###### 连接老挝和泰国的第三座泰老友谊大桥
 
-![](https://www.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_UHD.jpg)
 
 ## 归档
 
