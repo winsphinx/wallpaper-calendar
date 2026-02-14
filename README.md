@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260213 - 为拉近距离而建
+## 20260214 - 爱意绽放
 
-###### 连接老挝和泰国的第三座泰老友谊大桥
+###### 荷包牡丹
 
-![](https://www.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_UHD.jpg)
 
 ## 归档
 
