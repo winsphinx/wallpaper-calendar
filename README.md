@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260214 - 爱意绽放
+## 20260215 - 浪涛下的歌谣
 
-###### 荷包牡丹
+###### 蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_UHD.jpg)
 
 ## 归档
 
