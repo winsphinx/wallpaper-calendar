@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260216 - 祝除夕团圆，新年顺遂！
+## 20260217 - 福气满满，马年大吉
 
-###### 庆祝春节的龙形灯笼，中国西安
+###### 中国春节传统汉字“福”
 
-![](https://www.bing.com/th?id=OHR.ChineseNewYearEveY26_ZH-CN7770318975_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_UHD.jpg)
 
 ## 归档
 
