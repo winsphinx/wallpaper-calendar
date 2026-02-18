@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260217 - 福气满满，马年大吉
+## 20260218 - 生而自由，永不驯服
 
-###### 中国春节传统汉字“福”
+###### 普氏野马
 
-![](https://www.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_UHD.jpg)
 
 ## 归档
 
