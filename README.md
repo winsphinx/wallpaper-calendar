@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260218 - 生而自由，永不驯服
+## 20260219 - 大地凝视着我们
 
-###### 普氏野马
+###### 乌塔克莱夫海滩的“龙之眼”岩层，挪威
 
-![](https://www.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_UHD.jpg)
 
 ## 归档
 
