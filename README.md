@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260219 - 大地凝视着我们
+## 20260220 - 光照之处
 
-###### 乌塔克莱夫海滩的“龙之眼”岩层，挪威
+###### 约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_UHD.jpg)
 
 ## 归档
 
