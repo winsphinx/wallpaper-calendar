@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260222 - 群山的母亲
+## 20260223 - 雪原之王
 
-###### 马姆托尔山，德比郡，英格兰
+###### 大白鹭，上巴伐利亚州，德国
 
-![](https://www.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_UHD.jpg)
 
 ## 归档
 
