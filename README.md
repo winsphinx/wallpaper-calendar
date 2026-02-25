@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260224 - 池底的生命律动
+## 20260225 - 冰，由内而外透出光芒
 
-###### 大天坑里的睡莲，图卢姆，墨西哥
+###### 门登霍尔冰川的冰洞，阿拉斯加州，美国
 
-![](https://www.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MendenhallCave_ZH-CN1850649760_UHD.jpg)
 
 ## 归档
 
