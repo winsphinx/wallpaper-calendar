@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260225 - 冰，由内而外透出光芒
+## 20260226 - 一幅壮丽的景象
 
-###### 门登霍尔冰川的冰洞，阿拉斯加州，美国
+###### 大峡谷和科罗拉多河，亚利桑那州，美国
 
-![](https://www.bing.com/th?id=OHR.MendenhallCave_ZH-CN1850649760_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_UHD.jpg)
 
 ## 归档
 
