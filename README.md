@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260226 - 一幅壮丽的景象
+## 20260227 - 薄冰上的生活
 
-###### 大峡谷和科罗拉多河，亚利桑那州，美国
+###### 北极熊幼崽走过浮冰, 北极国家野生动物保护区, 阿拉斯加州, 美国
 
-![](https://www.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ArcitcCub_ZH-CN2725049760_UHD.jpg)
 
 ## 归档
 
