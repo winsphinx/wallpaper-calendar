@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260227 - 薄冰上的生活
+## 20260228 - 洋溢着社区氛围
 
-###### 北极熊幼崽走过浮冰, 北极国家野生动物保护区, 阿拉斯加州, 美国
+###### 奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国
 
-![](https://www.bing.com/th?id=OHR.ArcitcCub_ZH-CN2725049760_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OloupenaFalls_ZH-CN2980118660_UHD.jpg)
 
 ## 归档
 
