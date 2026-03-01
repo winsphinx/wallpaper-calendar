@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20260228 - 洋溢着社区氛围
+## 20260301 - 每一步，都是传承
 
-###### 奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国
+###### 伊维萨岛, 巴利阿里群岛, 西班牙
 
-![](https://www.bing.com/th?id=OHR.OloupenaFalls_ZH-CN2980118660_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_UHD.jpg)
 
 ## 归档
 
+| [202603](/202603/README.md)
 | [202602](/202602/README.md)
 | [202601](/202601/README.md)
 | [202512](/202512/README.md)
