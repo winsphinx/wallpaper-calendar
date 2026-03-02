@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260301 - 每一步，都是传承
+## 20260302 - 漂浮的传承
 
-###### 伊维萨岛, 巴利阿里群岛, 西班牙
+###### 苏梅岛的港口和长尾船, 泰国
 
-![](https://www.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SamuiThailand_ZH-CN3323790951_UHD.jpg)
 
 ## 归档
 
