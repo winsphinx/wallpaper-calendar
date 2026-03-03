@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260302 - 漂浮的传承
+## 20260303 - 花灯映月，团圆吉祥
 
-###### 苏梅岛的港口和长尾船, 泰国
+###### 元宵节期间悬挂的宫灯，北京自贡灯会现场，北京，中国
 
-![](https://www.bing.com/th?id=OHR.SamuiThailand_ZH-CN3323790951_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_UHD.jpg)
 
 ## 归档
 
