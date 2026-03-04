@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260303 - 花灯映月，团圆吉祥
+## 20260304 - 聚光灯下的番红花
 
-###### 元宵节期间悬挂的宫灯，北京自贡灯会现场，北京，中国
+###### 紫番红花, 里拉七湖, 保加利亚
 
-![](https://www.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_UHD.jpg)
 
 ## 归档
 
