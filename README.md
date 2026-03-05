@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260304 - 聚光灯下的番红花
+## 20260305 - 古老岩石，现代灯光
 
-###### 紫番红花, 里拉七湖, 保加利亚
+###### 格雷梅的傍晚, 卡帕多西亚, 土耳其
 
-![](https://www.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_UHD.jpg)
 
 ## 归档
 
