@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260305 - 古老岩石，现代灯光
+## 20260306 - 混凝土中铸造的波浪
 
-###### 格雷梅的傍晚, 卡帕多西亚, 土耳其
+###### 波浪住宅楼, 瓦埃勒, 丹麦
 
-![](https://www.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_UHD.jpg)
 
 ## 归档
 
