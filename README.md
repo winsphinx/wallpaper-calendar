@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260306 - 混凝土中铸造的波浪
+## 20260307 - 治愈、宁静且充满希望
 
-###### 波浪住宅楼, 瓦埃勒, 丹麦
+###### 布罗肯峰的日出, 哈尔茨国家公园, 德国
 
-![](https://www.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_UHD.jpg)
 
 ## 归档
 
