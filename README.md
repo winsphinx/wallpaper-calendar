@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260307 - 治愈、宁静且充满希望
+## 20260308 - 节约日光的艺术
 
-###### 布罗肯峰的日出, 哈尔茨国家公园, 德国
+###### 乌尔姆市政厅的天文钟, 德国
 
-![](https://www.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_UHD.jpg)
 
 ## 归档
 
