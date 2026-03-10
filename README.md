@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260309 - 一次恰到好处的午睡
+## 20260310 - 霜下之火
 
-###### 在海滩上睡觉的灰海豹, 奥克尼群岛, 苏格兰
+###### 赫韦拉韦利尔的布拉赫维尔地热池, 冰岛
 
-![](https://www.bing.com/th?id=OHR.NappingSeal_ZH-CN9424683964_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_UHD.jpg)
 
 ## 归档
 
