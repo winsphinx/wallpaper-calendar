@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260310 - 霜下之火
+## 20260311 - 一个美好的春天
 
-###### 赫韦拉韦利尔的布拉赫维尔地热池, 冰岛
+###### 盛开的桃树, 谢萨, 穆尔西亚, 西班牙
 
-![](https://www.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PeachBloom_ZH-CN9660251274_UHD.jpg)
 
 ## 归档
 
