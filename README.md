@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260311 - 一个美好的春天
+## 20260312 - 排练中的翅膀
 
-###### 盛开的桃树, 谢萨, 穆尔西亚, 西班牙
+###### 幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔
 
-![](https://www.bing.com/th?id=OHR.PeachBloom_ZH-CN9660251274_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_UHD.jpg)
 
 ## 归档
 
