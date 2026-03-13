@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260312 - 排练中的翅膀
+## 20260313 - 静谧的石之杰作
 
-###### 幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔
+###### 邦港圣母教堂拱顶，莱萨布勒多洛讷，法国
 
-![](https://www.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_UHD.jpg)
 
 ## 归档
 
