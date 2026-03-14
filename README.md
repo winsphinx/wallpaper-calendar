@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260313 - 静谧的石之杰作
+## 20260314 - 圆周率的古老启示
 
-###### 邦港圣母教堂拱顶，莱萨布勒多洛讷，法国
+###### 兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国
 
-![](https://www.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_UHD.jpg)
 
 ## 归档
 
