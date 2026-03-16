@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260315 - 掠海而过
+## 20260316 - 走进熊猫世界
 
-###### 太平洋沿岸国家公园保护区，温哥华岛，加拿大
+###### 正在吃竹子的大熊猫，中国
 
-![](https://www.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PandaForest_ZH-CN0545156080_UHD.jpg)
 
 ## 归档
 
