@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260316 - 走进熊猫世界
+## 20260317 - 爱尔兰的精神十字路口
 
-###### 正在吃竹子的大熊猫，中国
+###### 艾利赫格里安南环形堡，多内加尔，爱尔兰
 
-![](https://www.bing.com/th?id=OHR.PandaForest_ZH-CN0545156080_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DonegalFort_ZH-CN0718842170_UHD.jpg)
 
 ## 归档
 
