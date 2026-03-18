@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260317 - 爱尔兰的精神十字路口
+## 20260318 - 城市花开
 
-###### 艾利赫格里安南环形堡，多内加尔，爱尔兰
+###### 汤姆·麦考尔滨水公园的樱花，波特兰，俄勒冈州，美国
 
-![](https://www.bing.com/th?id=OHR.DonegalFort_ZH-CN0718842170_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PortlandBlossoms_ZH-CN0814501668_UHD.jpg)
 
 ## 归档
 
