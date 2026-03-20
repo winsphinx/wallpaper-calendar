@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260319 - 激发你的好奇心
+## 20260320 - 春日绯梦
 
-###### 澳洲针鼹，阿德莱德山，澳大利亚
+###### 春日樱花，上海，中国
 
-![](https://www.bing.com/th?id=OHR.EchidnaAustralia_ZH-CN0913792118_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_UHD.jpg)
 
 ## 归档
 
