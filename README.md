@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260320 - 春日绯梦
+## 20260321 - 根系自由生长的地方
 
-###### 春日樱花，上海，中国
+###### 莱泰亚森林，多瑙河三角洲，罗马尼亚
 
-![](https://www.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LeteaForest_ZH-CN4153496399_UHD.jpg)
 
 ## 归档
 
