@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260322 - 当水划出界线
+## 20260323 - 当水划出界线
 
 ###### 坦噶尼喀湖，非洲
 
-![](https://www.bing.com/th?id=OHR.TanganyikaWater_ZH-CN4884850067_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SonoranStorm_ZH-CN0579792563_UHD.jpg)
 
 ## 归档
 
