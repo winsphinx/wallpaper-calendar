@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260323 - 当水划出界线
+## 20260324 - 春天的形状
 
-###### 坦噶尼喀湖，非洲
+###### 东湖樱花园的樱花，武汉，中国
 
-![](https://www.bing.com/th?id=OHR.SonoranStorm_ZH-CN0579792563_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_UHD.jpg)
 
 ## 归档
 
