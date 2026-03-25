@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260324 - 春天的形状
+## 20260325 - 海牛的秘密生活
 
-###### 东湖樱花园的樱花，武汉，中国
+###### 淡水泉中的幼年海牛，水晶河，佛罗里达州，美国
 
-![](https://www.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_UHD.jpg)
 
 ## 归档
 
