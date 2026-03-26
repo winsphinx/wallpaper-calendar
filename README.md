@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260325 - 海牛的秘密生活
+## 20260326 - 凌驾荒野之上
 
-###### 淡水泉中的幼年海牛，水晶河，佛罗里达州，美国
+###### 洛根溪吊桥，西海岸步道，加拿大
 
-![](https://www.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_UHD.jpg)
 
 ## 归档
 
