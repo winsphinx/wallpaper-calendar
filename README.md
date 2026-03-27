@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260326 - 凌驾荒野之上
+## 20260327 - 依然明亮地燃烧着
 
-###### 洛根溪吊桥，西海岸步道，加拿大
+###### 纽约市的无线电城音乐厅, 美国
 
-![](https://www.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_UHD.jpg)
 
 ## 归档
 
