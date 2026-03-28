@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260327 - 依然明亮地燃烧着
+## 20260328 - 未驯服的精神
 
-###### 纽约市的无线电城音乐厅, 美国
+###### 非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚
 
-![](https://www.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CapeBuffalo_ZH-CN5591123662_UHD.jpg)
 
 ## 归档
 
