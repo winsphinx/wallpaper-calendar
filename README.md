@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260328 - 未驯服的精神
+## 20260329 - 海边的宁静
 
-###### 非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚
+###### 佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大
 
-![](https://www.bing.com/th?id=OHR.CapeBuffalo_ZH-CN5591123662_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_UHD.jpg)
 
 ## 归档
 
