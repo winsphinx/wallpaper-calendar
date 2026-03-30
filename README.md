@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260329 - 海边的宁静
+## 20260330 - 优雅的动态
 
-###### 佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大
+###### 蓑羽鹤, 印度
 
-![](https://www.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_UHD.jpg)
 
 ## 归档
 
