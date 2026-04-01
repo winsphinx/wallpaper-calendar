@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20260331 - 地下天堂
+## 20260401 - 跃入四月
 
-###### 天堂洞, 峰牙-格邦国家公园, 越南
+###### 粉色牵牛花里的日本树蛙
 
-![](https://www.bing.com/th?id=OHR.ParadiseCave_ZH-CN6371627729_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JapaneseTreeFrog_ZH-CN6467379766_UHD.jpg)
 
 ## 归档
 
+| [202604](/202604/README.md)
 | [202603](/202603/README.md)
 | [202602](/202602/README.md)
 | [202601](/202601/README.md)
