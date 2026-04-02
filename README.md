@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260401 - 跃入四月
+## 20260402 - 春天的图案
 
-###### 粉色牵牛花里的日本树蛙
+###### 野花绽放, 中央谷地, 加利福尼亚州, 美国
 
-![](https://www.bing.com/th?id=OHR.JapaneseTreeFrog_ZH-CN6467379766_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_UHD.jpg)
 
 ## 归档
 
