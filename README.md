@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260402 - 春天的图案
+## 20260403 - 一次挥动桥臂，连接两岸
 
-###### 野花绽放, 中央谷地, 加利福尼亚州, 美国
+###### 阿姆布鲁大桥，阿姆斯特丹，荷兰
 
-![](https://www.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_UHD.jpg)
 
 ## 归档
 
