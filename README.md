@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260403 - 一次挥动桥臂，连接两岸
+## 20260404 - 求偶展示场的故事
 
-###### 阿姆布鲁大桥，阿姆斯特丹，荷兰
+###### 求偶展示场上对峙的雄性黑琴鸡，爱沙尼亚
 
-![](https://www.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GrouseGuff_ZH-CN2647001885_UHD.jpg)
 
 ## 归档
 
