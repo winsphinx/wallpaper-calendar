@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260404 - 求偶展示场的故事
+## 20260405 - 静静绽放的变化
 
-###### 求偶展示场上对峙的雄性黑琴鸡，爱沙尼亚
+###### 春天的雪钟花
 
-![](https://www.bing.com/th?id=OHR.GrouseGuff_ZH-CN2647001885_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpringSnowdrops_ZH-CN2933051747_UHD.jpg)
 
 ## 归档
 
