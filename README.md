@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260406 - 芬芳四月
+## 20260407 - 一根树枝，一点工程
 
-###### 樱花盛开的弘前城，弘前，日本
+###### 河狸，德国
 
-![](https://www.bing.com/th?id=OHR.CastleBlossoms_ZH-CN3064288127_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_UHD.jpg)
 
 ## 归档
 
