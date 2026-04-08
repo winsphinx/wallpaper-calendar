@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260407 - 一根树枝，一点工程
+## 20260408 - 翡翠之城
 
-###### 河狸，德国
+###### 西雅图，华盛顿州，美国
 
-![](https://www.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SeattleSunrise_ZH-CN2884575647_UHD.jpg)
 
 ## 归档
 
