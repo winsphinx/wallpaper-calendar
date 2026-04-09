@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260408 - 翡翠之城
+## 20260409 - 光之水帘
 
-###### 西雅图，华盛顿州，美国
+###### 雪落瀑布，布雷肯比肯斯国家公园，威尔士
 
-![](https://www.bing.com/th?id=OHR.SeattleSunrise_ZH-CN2884575647_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WalesWaterfall_ZH-CN3175091833_UHD.jpg)
 
 ## 归档
 
