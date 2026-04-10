@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260409 - 光之水帘
+## 20260410 - 算计的小爪子
 
-###### 雪落瀑布，布雷肯比肯斯国家公园，威尔士
+###### 卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚
 
-![](https://www.bing.com/th?id=OHR.WalesWaterfall_ZH-CN3175091833_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_UHD.jpg)
 
 ## 归档
 
