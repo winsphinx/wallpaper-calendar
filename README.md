@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260410 - 算计的小爪子
+## 20260411 - 火山外衣
 
-###### 卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚
+###### 帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙
 
-![](https://www.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg)
 
 ## 归档
 
