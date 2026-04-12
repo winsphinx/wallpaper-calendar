@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260411 - 火山外衣
+## 20260412 - 离开地球的第一步
 
-###### 帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙
+###### 城市灯光在下方划过, 拍摄于国际空间站
 
-![](https://www.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_UHD.jpg)
 
 ## 归档
 
