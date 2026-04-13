@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260412 - 离开地球的第一步
+## 20260413 - 当灯光熄灭之后
 
-###### 城市灯光在下方划过, 拍摄于国际空间站
+###### 安扎-博雷戈沙漠州立公园上空的银河, 加利福尼亚州, 美国
 
-![](https://www.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BorregoStars_ZH-CN8915519147_UHD.jpg)
 
 ## 归档
 
