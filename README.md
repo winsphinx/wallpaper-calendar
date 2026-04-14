@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260413 - 当灯光熄灭之后
+## 20260414 - 珊瑚礁邻居
 
-###### 安扎-博雷戈沙漠州立公园上空的银河, 加利福尼亚州, 美国
+###### 海葵中的普通小丑鱼, 拉贾安帕特群岛, 印度尼西亚
 
-![](https://www.bing.com/th?id=OHR.BorregoStars_ZH-CN8915519147_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OcellarisClownfish_ZH-CN9362948727_UHD.jpg)
 
 ## 归档
 
