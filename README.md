@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260415 - 走进这幅鲜活的画布
+## 20260416 - 花瓣巡游
 
-###### 光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国
+###### 斯卡吉特谷地郁金香花田, 华盛顿, 美国
 
-![](https://www.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SkagitTulips_ZH-CN4234324174_UHD.jpg)
 
 ## 归档
 
