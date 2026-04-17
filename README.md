@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260416 - 花瓣巡游
+## 20260417 - 蝙蝠信号：开启
 
-###### 斯卡吉特谷地郁金香花田, 华盛顿, 美国
+###### 灰头狐蝠母亲携幼崽，雅拉湾国家公园，澳大利亚
 
-![](https://www.bing.com/th?id=OHR.SkagitTulips_ZH-CN4234324174_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FlyingFoxMom_ZH-CN2913012516_UHD.jpg)
 
 ## 归档
 
