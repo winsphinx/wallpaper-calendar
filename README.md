@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260417 - 蝙蝠信号：开启
+## 20260418 - 未完成巨像的静默
 
-###### 灰头狐蝠母亲携幼崽，雅拉湾国家公园，澳大利亚
+###### 摩艾石像采石场，拉诺拉拉库，复活节岛，智利
 
-![](https://www.bing.com/th?id=OHR.FlyingFoxMom_ZH-CN2913012516_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_UHD.jpg)
 
 ## 归档
 
