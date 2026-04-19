@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260418 - 未完成巨像的静默
+## 20260419 - 潮汐留下的印记
 
-###### 摩艾石像采石场，拉诺拉拉库，复活节岛，智利
+###### 镜面海滩，塞古罗港，巴伊亚州，巴西
 
-![](https://www.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_UHD.jpg)
 
 ## 归档
 
