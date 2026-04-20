@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260419 - 潮汐留下的印记
+## 20260420 - 日落之后，探索仍在继续
 
-###### 镜面海滩，塞古罗港，巴伊亚州，巴西
+###### 夕阳下的峡谷地国家公园，莫阿布，犹他州，美国
 
-![](https://www.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_UHD.jpg)
 
 ## 归档
 
