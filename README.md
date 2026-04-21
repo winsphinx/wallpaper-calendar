@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260420 - 日落之后，探索仍在继续
+## 20260421 - 春季的“带刺巡逻兵”
 
-###### 夕阳下的峡谷地国家公园，莫阿布，犹他州，美国
+###### 西欧刺猬，法国
 
-![](https://www.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_UHD.jpg)
 
 ## 归档
 
