@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260421 - 春季的“带刺巡逻兵”
+## 20260422 - 行动的力量
 
-###### 西欧刺猬，法国
+###### 阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚
 
-![](https://www.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TartuEstonia_ZH-CN5477370206_UHD.jpg)
 
 ## 归档
 
