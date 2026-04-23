@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260422 - 行动的力量
+## 20260423 - 一座充满故事的小屋
 
-###### 阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚
+###### 安妮·海瑟薇的小屋与花园，埃文河畔斯特拉特，英格兰
 
-![](https://www.bing.com/th?id=OHR.TartuEstonia_ZH-CN5477370206_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HathawayCottage_ZH-CN5558945636_UHD.jpg)
 
 ## 归档
 
