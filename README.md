@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260423 - 一座充满故事的小屋
+## 20260424 - 向树木致敬
 
-###### 安妮·海瑟薇的小屋与花园，埃文河畔斯特拉特，英格兰
+###### 湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国
 
-![](https://www.bing.com/th?id=OHR.HathawayCottage_ZH-CN5558945636_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SlashPine_ZH-CN5629388290_UHD.jpg)
 
 ## 归档
 
