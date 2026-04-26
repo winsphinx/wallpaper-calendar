@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260425 - 打破企鹅规则
+## 20260426 - 繁花盛放
 
-###### 加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔
+###### 粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国
 
-![](https://www.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_UHD.jpg)
 
 ## 归档
 
