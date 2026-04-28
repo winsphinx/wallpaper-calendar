@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260427 - 有格调的玻璃
+## 20260428 - 野外奇观
 
-###### 维托里奥·埃马努埃莱二世拱廊的玻璃穹顶, 米兰, 意大利
+###### 眼镜熊在树上休息, 厄瓜多尔
 
-![](https://www.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_UHD.jpg)
 
 ## 归档
 
