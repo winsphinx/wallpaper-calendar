@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260428 - 野外奇观
+## 20260429 - 历史镌刻于石上
 
-###### 眼镜熊在树上休息, 厄瓜多尔
+###### 塔霍河岸边的贝伦塔, 里斯本, 葡萄牙
 
-![](https://www.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BelemTowerBank_ZH-CN6235906597_UHD.jpg)
 
 ## 归档
 
