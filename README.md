@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260503 - 萨瓦纳的晚霞
+## 20260504 - 科幻源于现实
 
-###### 萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚
+###### 乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部
 
-![](https://www.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_UHD.jpg)
 
 ## 归档
 
