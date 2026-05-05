@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260504 - 科幻源于现实
+## 20260505 - 藕花风起，首夏清和
 
-###### 乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部
+###### 莲花与莲花植株
 
-![](https://www.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeginningofSummerY26_ZH-CN7628545617_UHD.jpg)
 
 ## 归档
 
