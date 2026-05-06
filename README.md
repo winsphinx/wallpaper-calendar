@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260505 - 藕花风起，首夏清和
+## 20260506 - 承受压力之下的平原
 
-###### 莲花与莲花植株
+###### 平原上空的雷暴，保加利亚
 
-![](https://www.bing.com/th?id=OHR.BeginningofSummerY26_ZH-CN7628545617_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BulgariaPlains_ZH-CN3853985252_UHD.jpg)
 
 ## 归档
 
