@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260506 - 承受压力之下的平原
+## 20260507 - 广袤铺展的沙漠
 
-###### 平原上空的雷暴，保加利亚
+###### 科法国家野生动物保护区，亚利桑那州，美国
 
-![](https://www.bing.com/th?id=OHR.BulgariaPlains_ZH-CN3853985252_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_UHD.jpg)
 
 ## 归档
 
