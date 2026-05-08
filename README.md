@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260507 - 广袤铺展的沙漠
+## 20260508 - 不仅仅是一声咿呀学语
 
-###### 科法国家野生动物保护区，亚利桑那州，美国
+###### 撒丁岛母驴和幼崽, 法国
 
-![](https://www.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_UHD.jpg)
 
 ## 归档
 
