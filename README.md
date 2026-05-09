@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260508 - 不仅仅是一声咿呀学语
+## 20260509 - 克尔卡的造物主
 
-###### 撒丁岛母驴和幼崽, 法国
+###### 克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚
 
-![](https://www.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SkradinskiBuk_ZH-CN0882603359_UHD.jpg)
 
 ## 归档
 
