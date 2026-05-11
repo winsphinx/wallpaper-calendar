@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260510 - 一份经久不衰的羁绊
+## 20260511 - 水下建筑
 
-###### 北极熊妈妈和幼崽在瓦普斯克国家公园玩耍, 马尼托巴省, 加拿大
+###### 从上方俯瞰大堡礁, 昆士兰州, 澳大利亚
 
-![](https://www.bing.com/th?id=OHR.MotherCub_ZH-CN0999123163_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.QueenslandReef_ZH-CN1138150002_UHD.jpg)
 
 ## 归档
 
