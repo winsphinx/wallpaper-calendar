@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260511 - 水下建筑
+## 20260512 - 振翅, 潜水, 生存
 
-###### 从上方俯瞰大堡礁, 昆士兰州, 澳大利亚
+###### 北极海鹦, 威尔士
 
-![](https://www.bing.com/th?id=OHR.QueenslandReef_ZH-CN1138150002_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Fratercula_ZH-CN1239275412_UHD.jpg)
 
 ## 归档
 
