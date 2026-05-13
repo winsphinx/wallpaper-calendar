@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260512 - 振翅, 潜水, 生存
+## 20260513 - 银河系，摇滚吧！
 
-###### 北极海鹦, 威尔士
+###### 拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国
 
-![](https://www.bing.com/th?id=OHR.Fratercula_ZH-CN1239275412_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_UHD.jpg)
 
 ## 归档
 
