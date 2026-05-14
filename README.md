@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260513 - 银河系，摇滚吧！
+## 20260514 - 一场穿越时空的旅程
 
-###### 拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国
+###### 中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利
 
-![](https://www.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_UHD.jpg)
 
 ## 归档
 
