@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260514 - 一场穿越时空的旅程
+## 20260515 - 鲸鱼，你会救我吗？
 
-###### 中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利
+###### 一群抹香鲸, 印度洋
 
-![](https://www.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EndangeredWhales_ZH-CN4053106967_UHD.jpg)
 
 ## 归档
 
