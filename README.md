@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260515 - 鲸鱼，你会救我吗？
+## 20260516 - 跌到谷底？这里可不是。
 
-###### 一群抹香鲸, 印度洋
+###### 史密斯岩州立公园, 俄勒冈州, 美国
 
-![](https://www.bing.com/th?id=OHR.EndangeredWhales_ZH-CN4053106967_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SmithRockPark_ZH-CN4210144402_UHD.jpg)
 
 ## 归档
 
