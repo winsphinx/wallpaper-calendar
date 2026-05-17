@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260516 - 跌到谷底？这里可不是。
+## 20260517 - 静谧之巅，喧嚣之景
 
-###### 史密斯岩州立公园, 俄勒冈州, 美国
+###### 仙纳度国家公园的玳瑁峰, 弗吉尼亚州, 美国
 
-![](https://www.bing.com/th?id=OHR.SmithRockPark_ZH-CN4210144402_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_UHD.jpg)
 
 ## 归档
 
