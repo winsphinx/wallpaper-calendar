@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260517 - 静谧之巅，喧嚣之景
+## 20260518 - 大厅里的希望
 
-###### 仙纳度国家公园的玳瑁峰, 弗吉尼亚州, 美国
+###### 伦敦自然历史博物馆, 英格兰
 
-![](https://www.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_UHD.jpg)
 
 ## 归档
 
