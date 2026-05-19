@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260518 - 大厅里的希望
+## 20260519 - 马略卡岛的边缘
 
-###### 伦敦自然历史博物馆, 英格兰
+###### 福门托尔灯塔, 马略卡, 巴利阿里群岛, 西班牙
 
-![](https://www.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_UHD.jpg)
 
 ## 归档
 
