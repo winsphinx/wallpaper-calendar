@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260519 - 马略卡岛的边缘
+## 20260520 - 喧闹从这里开始
 
-###### 福门托尔灯塔, 马略卡, 巴利阿里群岛, 西班牙
+###### 熊蜂在授粉, 伍斯特, 英格兰
 
-![](https://www.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_UHD.jpg)
 
 ## 归档
 
