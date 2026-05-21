@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260520 - 喧闹从这里开始
+## 20260521 - 酿造传承
 
-###### 熊蜂在授粉, 伍斯特, 英格兰
+###### 四川省的茶梯田, 中国
 
-![](https://www.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_UHD.jpg)
 
 ## 归档
 
