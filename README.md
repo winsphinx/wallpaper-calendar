@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260521 - 酿造传承
+## 20260522 - 海洋生命的律动
 
-###### 四川省的茶梯田, 中国
+###### 埃希环礁，土阿莫土群岛，法属波利尼西亚
 
-![](https://www.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KauehiAtollLagoon_ZH-CN9552036080_UHD.jpg)
 
 ## 归档
 
