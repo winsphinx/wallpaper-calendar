@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260523 - 为龟类喝彩！
+## 20260524 - 守护欧洲的自然净土
 
-###### 与蝴蝶在一起的乌龟
+###### 三峰自然公园，南蒂罗尔，意大利
 
-![](https://www.bing.com/th?id=OHR.ThreeTurtlesButterflies_ZH-CN7043849571_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_UHD.jpg)
 
 ## 归档
 
