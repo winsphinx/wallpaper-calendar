@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260524 - 守护欧洲的自然净土
+## 20260525 - 石间的清风
 
-###### 三峰自然公园，南蒂罗尔，意大利
+###### 从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度
 
-![](https://www.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_UHD.jpg)
 
 ## 归档
 
