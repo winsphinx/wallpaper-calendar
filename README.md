@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260525 - 石间的清风
+## 20260526 - 羽扇豆书写的季节
 
-###### 从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度
+###### 盛开的羽扇豆，北加利福尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.HawaMahal2026_ZH-CN7233246545_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_UHD.jpg)
 
 ## 归档
 
