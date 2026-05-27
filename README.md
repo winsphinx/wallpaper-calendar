@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260526 - 羽扇豆书写的季节
+## 20260527 - 它们“獭”独一无二
 
-###### 盛开的羽扇豆，北加利福尼亚州，美国
+###### 海獭，霍默卡奇马克湾，阿拉斯加州，美国
 
-![](https://www.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_UHD.jpg)
 
 ## 归档
 
