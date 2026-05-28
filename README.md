@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260527 - 它们“獭”独一无二
+## 20260528 - 设计与秩序相结合
 
-###### 海獭，霍默卡奇马克湾，阿拉斯加州，美国
+###### 华城堡的古城墙，水原，韩国
 
-![](https://www.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_UHD.jpg)
 
 ## 归档
 
