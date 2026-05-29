@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260528 - 设计与秩序相结合
+## 20260529 - 巅峰历史时刻
 
-###### 华城堡的古城墙，水原，韩国
+###### 珠穆朗玛峰峰顶，萨加玛塔国家公园，尼泊尔
 
-![](https://www.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_UHD.jpg)
 
 ## 归档
 
