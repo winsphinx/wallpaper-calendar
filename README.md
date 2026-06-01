@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20260531 - 顺流而行
+## 20260601 - 历史的况味
 
-###### 大沼泽地国家公园航拍景观，佛罗里达州，美国
+###### 巴勒莫暮色下的天际线，西西里岛，意大利
 
-![](https://www.bing.com/th?id=OHR.EvergladesWetlands_ZH-CN9515366484_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_UHD.jpg)
 
 ## 归档
 
+| [202606](/202606/README.md)
 | [202605](/202605/README.md)
 | [202604](/202604/README.md)
 | [202603](/202603/README.md)
