@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260601 - 历史的况味
+## 20260602 - 穿行于蓝色之间
 
-###### 巴勒莫暮色下的天际线，西西里岛，意大利
+###### 穿越西台吉乃尔湖的公路，青海省，中国
 
-![](https://www.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_UHD.jpg)
 
 ## 归档
 
