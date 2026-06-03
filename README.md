@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260602 - 穿行于蓝色之间
+## 20260603 - 路之所止，行之所启
 
-###### 穿越西台吉乃尔湖的公路，青海省，中国
+###### 骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙
 
-![](https://www.bing.com/th?id=OHR.Qinghai_ZH-CN9899656327_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_UHD.jpg)
 
 ## 归档
 
