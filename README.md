@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260603 - 路之所止，行之所启
+## 20260604 - 优雅羽饰
 
-###### 骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙
+###### 梳理羽毛的雪鹭，佛罗里达州中部，美国
 
-![](https://www.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_UHD.jpg)
 
 ## 归档
 
