@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260605 - 无人问津之地的静默力量
+## 20260606 - 多走走，多思考
 
-###### 从斯基尔夫山俯瞰拉帕达伦河三角洲, 萨雷克国家公园, 拉波尼亚, 瑞典拉普兰
+###### 纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国
 
-![](https://www.bing.com/th?id=OHR.WedLapland_ZH-CN2365942547_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HikingNatchez_ZH-CN2495512699_UHD.jpg)
 
 ## 归档
 
