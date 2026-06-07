@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260606 - 多走走，多思考
+## 20260607 - 最后一堵墙矗立着
 
-###### 纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国
+###### 邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰
 
-![](https://www.bing.com/th?id=OHR.HikingNatchez_ZH-CN2495512699_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_UHD.jpg)
 
 ## 归档
 
