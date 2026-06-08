@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260607 - 最后一堵墙矗立着
+## 20260608 - 随波逐流
 
-###### 邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰
+###### 在海洋中游动的狮鬃水母
 
-![](https://www.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Cyanea_ZH-CN3858079050_UHD.jpg)
 
 ## 归档
 
