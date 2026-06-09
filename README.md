@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260608 - 随波逐流
+## 20260609 - 品尝日落
 
-###### 在海洋中游动的狮鬃水母
+###### 韦尔纳扎, 五渔村, 利古里亚, 意大利
 
-![](https://www.bing.com/th?id=OHR.Cyanea_ZH-CN3858079050_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CTNPVernazza_ZH-CN3971102271_UHD.jpg)
 
 ## 归档
 
