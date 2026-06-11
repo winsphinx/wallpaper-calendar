@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260610 - 一抹蓝色
+## 20260611 - 沉静的力量
 
-###### 赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛
+###### 退潮时裸露在乌尔萨海滩海岸上的帽贝, 葡萄牙
 
-![](https://www.bing.com/th?id=OHR.Hnausapollur_ZH-CN4075343976_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Limpets_ZH-CN4991771513_UHD.jpg)
 
 ## 归档
 
