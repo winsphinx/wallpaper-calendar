@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260611 - 沉静的力量
+## 20260612 - 惊鸿一瞥
 
-###### 退潮时裸露在乌尔萨海滩海岸上的帽贝, 葡萄牙
+###### 黄喉蜂虎，格拉萨莱马山自然公园，加的斯，西班牙
 
-![](https://www.bing.com/th?id=OHR.Limpets_ZH-CN4991771513_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SpainBeeEater_ZH-CN4424052851_UHD.jpg)
 
 ## 归档
 
