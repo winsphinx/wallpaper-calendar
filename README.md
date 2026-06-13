@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260612 - 惊鸿一瞥
+## 20260613 - 岁月的层峦
 
-###### 黄喉蜂虎，格拉萨莱马山自然公园，加的斯，西班牙
+###### 落日，恶地国家公园，南达科他州，美国
 
-![](https://www.bing.com/th?id=OHR.SpainBeeEater_ZH-CN4424052851_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BadSunset_ZH-CN9050997938_UHD.jpg)
 
 ## 归档
 
