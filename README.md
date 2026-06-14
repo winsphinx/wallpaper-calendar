@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260613 - 岁月的层峦
+## 20260614 - 潜羽探清波
 
-###### 落日，恶地国家公园，南达科他州，美国
+###### 绿头鸭
 
-![](https://www.bing.com/th?id=OHR.BadSunset_ZH-CN9050997938_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_UHD.jpg)
 
 ## 归档
 
