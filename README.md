@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260614 - 潜羽探清波
+## 20260615 - 岁月雕琢，风景始成
 
-###### 绿头鸭
+###### 大烟山国家公园，田纳西州，美国
 
-![](https://www.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_UHD.jpg)
 
 ## 归档
 
