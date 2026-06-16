@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260615 - 岁月雕琢，风景始成
+## 20260616 - 蔚蓝海礁的守护者
 
-###### 大烟山国家公园，田纳西州，美国
+###### 七英里海滩附近的玳瑁海龟伴侣，大开曼岛，开曼群岛
 
-![](https://www.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_UHD.jpg)
 
 ## 归档
 
