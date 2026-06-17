@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260616 - 蔚蓝海礁的守护者
+## 20260617 - 蜿蜒而上
 
-###### 七英里海滩附近的玳瑁海龟伴侣，大开曼岛，开曼群岛
+###### 特雷莫拉公路在圣哥达山口，艾罗洛，瑞士
 
-![](https://www.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TremolaRoad_ZH-CN8810749250_UHD.jpg)
 
 ## 归档
 
