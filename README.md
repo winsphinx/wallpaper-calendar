@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260617 - 蜿蜒而上
+## 20260618 - 坚如磐石的奇观
 
-###### 特雷莫拉公路在圣哥达山口，艾罗洛，瑞士
+###### 萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁
 
-![](https://www.bing.com/th?id=OHR.TremolaRoad_ZH-CN8810749250_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_UHD.jpg)
 
 ## 归档
 
