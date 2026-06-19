@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260618 - 坚如磐石的奇观
+## 20260619 - 龙吟古韵
 
-###### 萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁
+###### 湖中的龙舟，中国
 
-![](https://www.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN3070279417_UHD.jpg)
 
 ## 归档
 
