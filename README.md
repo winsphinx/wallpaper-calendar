@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260619 - 龙吟古韵
+## 20260620 - 海洋中冰封的大教堂
 
-###### 湖中的龙舟，中国
+###### 漂浮在南极半岛西部海域的拱形冰山, 南大洋
 
-![](https://www.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN3070279417_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_UHD.jpg)
 
 ## 归档
 
