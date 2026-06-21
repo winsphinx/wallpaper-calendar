@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260620 - 海洋中冰封的大教堂
+## 20260621 - 鸟类好爸爸
 
-###### 漂浮在南极半岛西部海域的拱形冰山, 南大洋
+###### 企鹅爸爸正在检查蛋的情况
 
-![](https://www.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_UHD.jpg)
 
 ## 归档
 
