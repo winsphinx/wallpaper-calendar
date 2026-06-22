@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260621 - 鸟类好爸爸
+## 20260622 - 一个郁郁葱葱的王国
 
-###### 企鹅爸爸正在检查蛋的情况
+###### 奎诺尔特雨林, 奥林匹克国家公园, 华盛顿州, 美国
 
-![](https://www.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.QuinaultFerns_ZH-CN6696428927_UHD.jpg)
 
 ## 归档
 
