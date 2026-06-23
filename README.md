@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260622 - 一个郁郁葱葱的王国
+## 20260623 - 天际线上的印记
 
-###### 奎诺尔特雨林, 奥林匹克国家公园, 华盛顿州, 美国
+###### 本州岛上的富士山, 日本
 
-![](https://www.bing.com/th?id=OHR.QuinaultFerns_ZH-CN6696428927_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Fujisan_ZH-CN7203975085_UHD.jpg)
 
 ## 归档
 
