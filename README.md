@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260623 - 天际线上的印记
+## 20260624 - 花粉与翅膀相遇
 
-###### 本州岛上的富士山, 日本
+###### 蝴蝶正在黄花上授粉
 
-![](https://www.bing.com/th?id=OHR.Fujisan_ZH-CN7203975085_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BFPollin_ZH-CN7654067396_UHD.jpg)
 
 ## 归档
 
