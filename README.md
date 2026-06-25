@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260624 - 花粉与翅膀相遇
+## 20260625 - 在广场中感受历史
 
-###### 蝴蝶正在黄花上授粉
+###### 布鲁塞尔大广场上的建筑群, 比利时
 
-![](https://www.bing.com/th?id=OHR.BFPollin_ZH-CN7654067396_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GrandPlace_ZH-CN8806496436_UHD.jpg)
 
 ## 归档
 
