@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260625 - 在广场中感受历史
+## 20260626 - 时事
 
-###### 布鲁塞尔大广场上的建筑群, 比利时
+###### 泰晤士河, 伦敦, 英格兰
 
-![](https://www.bing.com/th?id=OHR.GrandPlace_ZH-CN8806496436_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_UHD.jpg)
 
 ## 归档
 
