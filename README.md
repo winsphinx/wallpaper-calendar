@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260626 - 时事
+## 20260627 - 逐渐失去立足之地的树木
 
-###### 泰晤士河, 伦敦, 英格兰
+###### 博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国
 
-![](https://www.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_UHD.jpg)
 
 ## 归档
 
