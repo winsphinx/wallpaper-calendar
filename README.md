@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260703 - 流光之诗
+## 20260704 - 此行，不虚绕道
 
-###### 小溪上方的萤火虫，冈山县，日本
+###### 凯泽斯堡，阿尔萨斯，法国
 
-![](https://www.bing.com/th?id=OHR.FirefliesJapan_ZH-CN0071253415_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KaysersbergVillage_ZH-CN0445080679_UHD.jpg)
 
 ## 归档
 
