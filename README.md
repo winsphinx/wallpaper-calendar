@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260704 - 此行，不虚绕道
+## 20260705 - 紫色花海
 
-###### 凯泽斯堡，阿尔萨斯，法国
+###### 瓦朗索勒高原的薰衣草行，普罗旺斯，法国
 
-![](https://www.bing.com/th?id=OHR.KaysersbergVillage_ZH-CN0445080679_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_UHD.jpg)
 
 ## 归档
 
