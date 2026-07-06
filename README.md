@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260705 - 紫色花海
+## 20260706 - 百代镌刻之城
 
-###### 瓦朗索勒高原的薰衣草行，普罗旺斯，法国
+###### 锡拉库萨的日落，西西里岛，意大利
 
-![](https://www.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_UHD.jpg)
 
 ## 归档
 
