@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260706 - 百代镌刻之城
+## 20260707 - 林冠华彩
 
-###### 锡拉库萨的日落，西西里岛，意大利
+###### 板嘴山巨嘴鸟与兰花，厄瓜多尔
 
-![](https://www.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_UHD.jpg)
 
 ## 归档
 
