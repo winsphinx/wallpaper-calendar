@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260707 - 林冠华彩
+## 20260708 - 远古火山的回响
 
-###### 板嘴山巨嘴鸟与兰花，厄瓜多尔
+###### 阿蒂特兰湖的日出，危地马拉
 
-![](https://www.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_UHD.jpg)
 
 ## 归档
 
