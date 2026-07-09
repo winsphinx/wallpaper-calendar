@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260708 - 远古火山的回响
+## 20260709 - 步步传承
 
-###### 阿蒂特兰湖的日出，危地马拉
+###### 在沙巴的水稻田，老街，越南
 
-![](https://www.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SapaVietnam_ZH-CN2178893672_UHD.jpg)
 
 ## 归档
 
