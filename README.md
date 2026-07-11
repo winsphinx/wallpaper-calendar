@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260710 - 陆地与海洋的鸟瞰图
+## 20260711 - 布列塔尼的潮汐之约
 
-###### 陆地与海洋的鸟瞰图，维多利亚州，澳大利亚
+###### 圣古斯坦港, 欧赖, 布列塔尼, 法国
 
-![](https://www.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_UHD.jpg)
 
 ## 归档
 
