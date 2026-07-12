@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260711 - 布列塔尼的潮汐之约
+## 20260712 - 缅因州的狂野一面
 
-###### 圣古斯坦港, 欧赖, 布列塔尼, 法国
+###### 卡塔丁森林和水域国家纪念地，缅因州，美国
 
-![](https://www.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KatahdinWWNM_ZH-CN5496444375_UHD.jpg)
 
 ## 归档
 
