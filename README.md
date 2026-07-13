@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260712 - 缅因州的狂野一面
+## 20260713 - 为摇滚而生
 
-###### 卡塔丁森林和水域国家纪念地，缅因州，美国
+###### 羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国
 
-![](https://www.bing.com/th?id=OHR.KatahdinWWNM_ZH-CN5496444375_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NavajoSandstone_ZH-CN5009673011_UHD.jpg)
 
 ## 归档
 
