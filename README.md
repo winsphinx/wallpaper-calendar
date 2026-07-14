@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260713 - 为摇滚而生
+## 20260714 - 奇妙的真相
 
-###### 羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国
+###### 柠檬鲨幼崽在红树林中，伊柳塞拉岛，巴哈马
 
-![](https://www.bing.com/th?id=OHR.NavajoSandstone_ZH-CN5009673011_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LemonShark_ZH-CN4650331008_UHD.jpg)
 
 ## 归档
 
