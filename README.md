@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260714 - 奇妙的真相
+## 20260715 - 攀登后的奖励
 
-###### 柠檬鲨幼崽在红树林中，伊柳塞拉岛，巴哈马
+###### 玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.LemonShark_ZH-CN4650331008_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MarieLake_ZH-CN4927917413_UHD.jpg)
 
 ## 归档
 
