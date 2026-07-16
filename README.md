@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260715 - 攀登后的奖励
+## 20260716 - 滨水变色龙
 
-###### 玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国
+###### 海军码头，芝加哥，伊利诺伊州，美国
 
-![](https://www.bing.com/th?id=OHR.MarieLake_ZH-CN4927917413_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_UHD.jpg)
 
 ## 归档
 
