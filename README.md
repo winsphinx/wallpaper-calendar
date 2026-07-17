@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260716 - 滨水变色龙
+## 20260717 - 希腊式的逃离
 
-###### 海军码头，芝加哥，伊利诺伊州，美国
+###### 瓦伊海滩上的日光浴躺椅，克里特岛，希腊
 
-![](https://www.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg)
 
 ## 归档
 
