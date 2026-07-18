@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260717 - 希腊式的逃离
+## 20260718 - 环影圆成
 
-###### 瓦伊海滩上的日光浴躺椅，克里特岛，希腊
+###### 恶魔桥在克罗姆劳杜鹃花公园，萨克森州，德国
 
-![](https://www.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DevilsBridge_ZH-CN2164982440_UHD.jpg)
 
 ## 归档
 
