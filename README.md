@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260718 - 环影圆成
+## 20260719 - 敛羽栖时
 
-###### 恶魔桥在克罗姆劳杜鹃花公园，萨克森州，德国
+###### 不同亚种的家燕聚在一起休息
 
-![](https://www.bing.com/th?id=OHR.DevilsBridge_ZH-CN2164982440_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HirundoRustica_ZH-CN2798518247_UHD.jpg)
 
 ## 归档
 
