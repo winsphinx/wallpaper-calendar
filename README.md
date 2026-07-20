@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260719 - 敛羽栖时
+## 20260720 - 月瞰寰宇
 
-###### 不同亚种的家燕聚在一起休息
+###### 月球与地球由阿耳忒弥斯2号机组人员拍摄
 
-![](https://www.bing.com/th?id=OHR.HirundoRustica_ZH-CN2798518247_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Artemis_ZH-CN3540365575_UHD.jpg)
 
 ## 归档
 
