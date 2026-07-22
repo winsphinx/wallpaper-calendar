@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260721 - 拱影寻踪
+## 20260722 - 细微之举，影响深远
 
-###### 圣卡塔琳娜拱门，安提瓜，危地马拉
+###### 珊瑚礁与海滩在拉贾安帕特，印度尼西亚
 
-![](https://www.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CoralAwareness_ZH-CN1621627126_UHD.jpg)
 
 ## 归档
 
