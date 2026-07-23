@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260722 - 细微之举，影响深远
+## 20260723 - 瓣叠交响
 
-###### 珊瑚礁与海滩在拉贾安帕特，印度尼西亚
+###### 粉红色大丽花
 
-![](https://www.bing.com/th?id=OHR.CoralAwareness_ZH-CN1621627126_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_UHD.jpg)
 
 ## 归档
 
