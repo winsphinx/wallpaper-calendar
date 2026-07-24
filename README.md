@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260723 - 瓣叠交响
+## 20260724 - 缤纷多彩的一家人
 
-###### 粉红色大丽花
+###### 美洲红鹳群在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔
 
-![](https://www.bing.com/th?id=OHR.PinkDahlia_ZH-CN2259107800_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GalapagosFlamingos_ZH-CN1152519387_UHD.jpg)
 
 ## 归档
 
