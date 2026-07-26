@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260725 - 加境幽廊
+## 20260726 - 海陆际会，生机肇始
 
-###### 大教堂海滩，加利西亚，西班牙
+###### 红树上的日出在小猪群岛，洪都拉斯
 
-![](https://www.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_UHD.jpg)
 
 ## 归档
 
