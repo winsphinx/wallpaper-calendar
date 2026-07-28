@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260727 - 仰望芝城，流光溢彩
+## 20260728 - 生机律动，恒久之衡
 
-###### 蒂芙尼穹顶，芝加哥文化中心，伊利诺伊州，美国
+###### 一片海藻林在安纳卡帕岛附近，海峡群岛国家公园，加利福尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.ChicagoTiffany_ZH-CN9860688834_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChannelKelp_ZH-CN8732903732_UHD.jpg)
 
 ## 归档
 
