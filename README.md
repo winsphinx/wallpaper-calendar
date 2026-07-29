@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260728 - 生机律动，恒久之衡
+## 20260729 - 虎啸归来，锐爪重临
 
-###### 一片海藻林在安纳卡帕岛附近，海峡群岛国家公园，加利福尼亚州，美国
+###### 孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度
 
-![](https://www.bing.com/th?id=OHR.ChannelKelp_ZH-CN8732903732_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_UHD.jpg)
 
 ## 归档
 
