@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260729 - 虎啸归来，锐爪重临
+## 20260730 - 旷野无声，活态传承之境
 
-###### 孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度
+###### 在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国
 
-![](https://www.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_UHD.jpg)
 
 ## 归档
 
