@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260730 - 旷野无声，活态传承之境
+## 20260731 - 穿越时光的足迹
 
-###### 在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国
+###### 鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_UHD.jpg)
 
 ## 归档
 
