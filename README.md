@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20260731 - 穿越时光的足迹
+## 20260801 - 基拉韦厄火山的威力
 
-###### 鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国
+###### 大批熔岩流涌入大洋，大岛，夏威夷州，美国
 
-![](https://www.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_UHD.jpg)
 
 ## 归档
 
+| [202608](/202608/README.md)
 | [202607](/202607/README.md)
 | [202606](/202606/README.md)
 | [202605](/202605/README.md)
