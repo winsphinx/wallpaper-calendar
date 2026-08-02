@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260801 - 基拉韦厄火山的威力
+## 20260802 - 色彩鲜艳的船只，历久弥新的传统
 
-###### 大批熔岩流涌入大洋，大岛，夏威夷州，美国
+###### 马尔萨什洛克港口五彩斑斓的渔船，马耳他
 
-![](https://www.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_UHD.jpg)
 
 ## 归档
 
