@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260802 - 色彩鲜艳的船只，历久弥新的传统
+## 20260803 - 色彩鲜艳的船只，历久弥新的传统
 
 ###### 马尔萨什洛克港口五彩斑斓的渔船，马耳他
 
-![](https://www.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BoatsMalta_ZH-CN4708255775_UHD.jpg)
 
 ## 归档
 
