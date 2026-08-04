@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260803 - 色彩鲜艳的船只，历久弥新的传统
+## 20260804 - 呼呼，太棒了！
 
-###### 马尔萨什洛克港口五彩斑斓的渔船，马耳他
+###### 佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国
 
-![](https://www.bing.com/th?id=OHR.BoatsMalta_ZH-CN4708255775_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_UHD.jpg)
 
 ## 归档
 
