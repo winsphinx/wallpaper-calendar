@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260804 - 呼呼，太棒了！
+## 20260805 - 秘境之门，匠心传世
 
-###### 佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国
+###### 非斯皇宫装饰华丽的大门，摩洛哥
 
-![](https://www.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_UHD.jpg)
 
 ## 归档
 
