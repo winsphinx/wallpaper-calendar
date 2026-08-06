@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260805 - 秘境之门，匠心传世
+## 20260806 - 生死渡口，勇者的史诗
 
-###### 非斯皇宫装饰华丽的大门，摩洛哥
+###### 马赛马拉迁徙的角马群横渡马拉河, 肯尼亚
 
-![](https://www.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_UHD.jpg)
 
 ## 归档
 
