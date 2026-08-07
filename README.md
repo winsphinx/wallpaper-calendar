@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260806 - 生死渡口，勇者的史诗
+## 20260807 - 指引船只穿越历史
 
-###### 马赛马拉迁徙的角马群横渡马拉河, 肯尼亚
+###### 圣胡安岛石灰窑灯塔，华盛顿州，美国
 
-![](https://www.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LimeKiln_ZH-CN5664152522_UHD.jpg)
 
 ## 归档
 
