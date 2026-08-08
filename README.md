@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260807 - 指引船只穿越历史
+## 20260808 - 迈向无限
 
-###### 圣胡安岛石灰窑灯塔，华盛顿州，美国
+###### 蒂斯河畔斯托克顿无限桥，英格兰
 
-![](https://www.bing.com/th?id=OHR.LimeKiln_ZH-CN5664152522_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.StocktonInfinity_ZH-CN5941379745_UHD.jpg)
 
 ## 归档
 
