@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260808 - 迈向无限
+## 20260809 - 身份认同的建筑表达
 
-###### 蒂斯河畔斯托克顿无限桥，英格兰
+###### 让-马里·吉巴乌文化中心，新喀里多尼亚
 
-![](https://www.bing.com/th?id=OHR.StocktonInfinity_ZH-CN5941379745_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JMTjibaou_ZH-CN6992670356_UHD.jpg)
 
 ## 归档
 
