@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260809 - 身份认同的建筑表达
+## 20260810 - 两片沙漠交汇之地
 
-###### 让-马里·吉巴乌文化中心，新喀里多尼亚
+###### 约书亚树国家公园，加利福尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.JMTjibaou_ZH-CN6992670356_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_UHD.jpg)
 
 ## 归档
 
