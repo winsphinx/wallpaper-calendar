@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260810 - 两片沙漠交汇之地
+## 20260811 - 绚丽多彩的哥本哈根
 
-###### 约书亚树国家公园，加利福尼亚州，美国
+###### 哥本哈根新港运河沿岸的彩色房屋，首都大区，丹麦
 
-![](https://www.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ColorfulCop_ZH-CN8015611442_UHD.jpg)
 
 ## 归档
 
