@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260811 - 绚丽多彩的哥本哈根
+## 20260812 - 值得守护的巨兽
 
-###### 哥本哈根新港运河沿岸的彩色房屋，首都大区，丹麦
+###### 安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚
 
-![](https://www.bing.com/th?id=OHR.ColorfulCop_ZH-CN8015611442_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_UHD.jpg)
 
 ## 归档
 
