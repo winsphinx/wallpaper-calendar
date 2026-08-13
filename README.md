@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260812 - 值得守护的巨兽
+## 20260813 - 许个愿吧
 
-###### 安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚
+###### 泰德天文台上空的英仙座流星，加那利群岛，西班牙
 
-![](https://www.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_UHD.jpg)
 
 ## 归档
 
