@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260813 - 许个愿吧
+## 20260814 - 为动物脚掌而建，而非行人
 
-###### 泰德天文台上空的英仙座流星，加那利群岛，西班牙
+###### 扎克舒夫附近的野生动物通道，波兰
 
-![](https://www.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_UHD.jpg)
 
 ## 归档
 
