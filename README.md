@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260815 - 绝妙的平衡术
+## 20260816 - 天鹅开启传奇之处
 
-###### 圣胡安县阿什斯利帕荒野地的奇岩柱，新墨西哥州，美国
+###### 戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰
 
-![](https://www.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_UHD.jpg)
 
 ## 归档
 
