@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260816 - 天鹅开启传奇之处
+## 20260817 - 珊瑚礁上的黄金地段
 
-###### 戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰
+###### 海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾
 
-![](https://www.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_UHD.jpg)
 
 ## 归档
 
