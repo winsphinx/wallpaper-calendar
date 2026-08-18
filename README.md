@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260817 - 珊瑚礁上的黄金地段
+## 20260818 - 星形城市的几何之美
 
-###### 海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾
+###### 弗留利要塞城市帕尔马诺瓦航拍图，意大利
 
-![](https://www.bing.com/th?id=OHR.CabilaoClowns_ZH-CN0147033898_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Palmanova_ZH-CN0378401592_UHD.jpg)
 
 ## 归档
 
