@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260819 - 浪潮间的通道
+## 20260820 - 鲸群之声
 
-###### 怀特克利夫公园，西温哥华，加拿大
+###### 林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国
 
-![](https://www.bing.com/th?id=OHR.WhyteCliffP_ZH-CN0573407830_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LynnCanalOrca_ZH-CN0719217908_UHD.jpg)
 
 ## 归档
 
