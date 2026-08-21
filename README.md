@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260820 - 鲸群之声
+## 20260821 - 攀登在召唤
 
-###### 林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国
+###### 尤利尔山口蜿蜒的公路，瑞士
 
-![](https://www.bing.com/th?id=OHR.LynnCanalOrca_ZH-CN0719217908_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JulierPass_ZH-CN3064797820_UHD.jpg)
 
 ## 归档
 
