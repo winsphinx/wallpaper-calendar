@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260821 - 攀登在召唤
+## 20260822 - 天蓝色的翅膀
 
-###### 尤利尔山口蜿蜒的公路，瑞士
+###### 普通蓝灰蝶，德文郡，英格兰
 
-![](https://www.bing.com/th?id=OHR.JulierPass_ZH-CN3064797820_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CommonBlue_ZH-CN8521430009_UHD.jpg)
 
 ## 归档
 
