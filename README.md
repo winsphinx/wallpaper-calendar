@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260823 - 暑气渐消，金秋已至
+## 20260824 - 跨越历史
 
-###### 在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国
+###### 布鲁克林大桥，纽约市，美国
 
-![](https://www.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BKBridge_ZH-CN3870511222_UHD.jpg)
 
 ## 归档
 
