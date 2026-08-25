@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260824 - 跨越历史
+## 20260825 - 守护美国瑰宝
 
-###### 布鲁克林大桥，纽约市，美国
+###### 红木国家与州立公园的日出，加利福尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.BKBridge_ZH-CN3870511222_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RedwoodPark_ZH-CN9513051062_UHD.jpg)
 
 ## 归档
 
