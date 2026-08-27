@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260826 - 流光溢彩的天空
+## 20260827 - 湖水、野生动物与奇景
 
-###### 基尔丘山上空的极光，冰岛
+###### 日出时的小红鹳群，马加迪湖，肯尼亚
 
-![](https://www.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_UHD.jpg)
 
 ## 归档
 
