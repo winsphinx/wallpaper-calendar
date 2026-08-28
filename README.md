@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260827 - 湖水、野生动物与奇景
+## 20260828 - 潮汐塑造的传奇
 
-###### 日出时的小红鹳群，马加迪湖，肯尼亚
+###### 涨潮时的圣米歇尔山，芒什省，诺曼底，法国
 
-![](https://www.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_UHD.jpg)
 
 ## 归档
 
