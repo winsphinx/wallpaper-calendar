@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260828 - 潮汐塑造的传奇
+## 20260829 - 读懂浪涛之间的讯息
 
-###### 涨潮时的圣米歇尔山，芒什省，诺曼底，法国
+###### 冲浪者航拍图，圣卡塔琳娜州，巴西
 
-![](https://www.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_UHD.jpg)
 
 ## 归档
 
