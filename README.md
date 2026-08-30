@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260829 - 读懂浪涛之间的讯息
+## 20260830 - 名为鲨鱼的巨型鱼类
 
-###### 冲浪者航拍图，圣卡塔琳娜州，巴西
+###### 鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚
 
-![](https://www.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_UHD.jpg)
 
 ## 归档
 
