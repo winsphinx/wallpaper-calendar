@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260830 - 名为鲨鱼的巨型鱼类
+## 20260831 - 图案艺术的典范
 
-###### 鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚
+###### 雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦
 
-![](https://www.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_UHD.jpg)
 
 ## 归档
 
