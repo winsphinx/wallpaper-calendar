@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20260831 - 图案艺术的典范
+## 20260901 - 脚下的世界
 
-###### 雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦
+###### 马鬃小皮伞，白俄罗斯
 
-![](https://www.bing.com/th?id=OHR.SamarkandCeiling_ZH-CN1818913296_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg)
 
 ## 归档
 
+| [202609](/202609/README.md)
 | [202608](/202608/README.md)
 | [202607](/202607/README.md)
 | [202606](/202606/README.md)
