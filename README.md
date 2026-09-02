@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260901 - 脚下的世界
+## 20260902 - 海岸边的缤纷色彩
 
-###### 马鬃小皮伞，白俄罗斯
+###### 传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰
 
-![](https://www.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg)
 
 ## 归档
 
