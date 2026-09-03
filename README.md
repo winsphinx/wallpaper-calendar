@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260902 - 海岸边的缤纷色彩
+## 20260903 - 一部守护荒野的法案
 
-###### 传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰
+###### 郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国
 
-![](https://www.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_UHD.jpg)
 
 ## 归档
 
