@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260904 - 地平线上的红与白
+## 20260905 - 小小鸟儿，巨大影响
 
-###### 韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国
+###### 龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加
 
-![](https://www.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_UHD.jpg)
 
 ## 归档
 
