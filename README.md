@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260906 - 倒影满湖的水库
+## 20260907 - 历史沿运河流淌之地
 
-###### 菲安斯湖，格兰屏国家公园，维多利亚州，澳大利亚
+###### 老市政厅，班贝格，德国
 
-![](https://www.bing.com/th?id=OHR.LakeFyans_ZH-CN1067187791_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BambergTownhall_ZH-CN1407954732_UHD.jpg)
 
 ## 归档
 
