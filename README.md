@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260907 - 历史沿运河流淌之地
+## 20260908 - 金色田野
 
-###### 老市政厅，班贝格，德国
+###### 东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰
 
-![](https://www.bing.com/th?id=OHR.BambergTownhall_ZH-CN1407954732_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_UHD.jpg)
 
 ## 归档
 
