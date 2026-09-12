@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260911 - 地中海风情尽显
+## 20260912 - 海浪与海岸的高手
 
-###### 滨海自由城，法国里维埃拉，法国
+###### 墨西哥近海围猎沙丁鱼饵球的加州海狮，太平洋
 
-![](https://www.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SardineBait_ZH-CN3256234033_UHD.jpg)
 
 ## 归档
 
