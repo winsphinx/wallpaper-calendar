@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260912 - 海浪与海岸的高手
+## 20260913 - 高处的珊瑚礁
 
-###### 墨西哥近海围猎沙丁鱼饵球的加州海狮，太平洋
+###### 米苏里纳群峰，多洛米蒂山脉，威尼托大区，意大利
 
-![](https://www.bing.com/th?id=OHR.SardineBait_ZH-CN3256234033_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MisurinaPeak_ZH-CN3877105161_UHD.jpg)
 
 ## 归档
 
