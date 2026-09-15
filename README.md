@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260914 - 坚韧在此扎根
+## 20260915 - 最炫者生存
 
-###### 地肤田，中国
+###### 红绿金刚鹦鹉
 
-![](https://www.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_UHD.jpg)
 
 ## 归档
 
