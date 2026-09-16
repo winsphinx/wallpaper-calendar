@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260915 - 最炫者生存
+## 20260916 - 北极的新晋探索者
 
-###### 红绿金刚鹦鹉
+###### 斯瓦尔巴群岛玩耍的北极熊幼崽，挪威
 
-![](https://www.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_UHD.jpg)
 
 ## 归档
 
