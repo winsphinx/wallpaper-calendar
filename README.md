@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260916 - 北极的新晋探索者
+## 20260917 - 为丰收举杯
 
-###### 斯瓦尔巴群岛玩耍的北极熊幼崽，挪威
+###### 桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国
 
-![](https://www.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_UHD.jpg)
 
 ## 归档
 
