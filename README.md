@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260917 - 为丰收举杯
+## 20260918 - 穿越山口腹地
 
-###### 桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国
+###### 温纳茨山口，峰区国家公园，英格兰
 
-![](https://www.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_UHD.jpg)
 
 ## 归档
 
