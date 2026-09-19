@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260918 - 穿越山口腹地
+## 20260919 - 慕尼黑啤酒节的阿尔卑斯之声
 
-###### 温纳茨山口，峰区国家公园，英格兰
+###### 阿尔卑斯长号演奏者，巴伐利亚州，德国
 
-![](https://www.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_UHD.jpg)
 
 ## 归档
 
