@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260919 - 慕尼黑啤酒节的阿尔卑斯之声
+## 20260920 - 终获巴黎青睐的铁塔
 
-###### 阿尔卑斯长号演奏者，巴伐利亚州，德国
+###### 日落时分的埃菲尔铁塔，巴黎，法国
 
-![](https://www.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_UHD.jpg)
 
 ## 归档
 
