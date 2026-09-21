@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260920 - 终获巴黎青睐的铁塔
+## 20260921 - 皮毛与海洋之间的生命
 
-###### 日落时分的埃菲尔铁塔，巴黎，法国
+###### 正在梳理皮毛的海獭，蒙特雷湾，加利福尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_UHD.jpg)
 
 ## 归档
 
