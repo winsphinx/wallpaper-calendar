@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260921 - 皮毛与海洋之间的生命
+## 20260922 - 金色时节
 
-###### 正在梳理皮毛的海獭，蒙特雷湾，加利福尼亚州，美国
+###### 瓜兹曼山口附近的秋日山杨林，犹他州，美国
 
-![](https://www.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_UHD.jpg)
 
 ## 归档
 
