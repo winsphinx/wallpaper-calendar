@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260922 - 金色时节
+## 20260923 - 金秋平分，地坛染黄
 
-###### 瓜兹曼山口附近的秋日山杨林，犹他州，美国
+###### 地坛公园秋日美景，北京，中国
 
-![](https://www.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_UHD.jpg)
 
 ## 归档
 
