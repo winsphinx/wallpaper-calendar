@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260923 - 金秋平分，地坛染黄
+## 20260924 - 火山灰与浪花相遇
 
-###### 地坛公园秋日美景，北京，中国
+###### 黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙
 
-![](https://www.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ElGolfo_ZH-CN8329995759_UHD.jpg)
 
 ## 归档
 
