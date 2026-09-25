@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260924 - 火山灰与浪花相遇
+## 20260925 - 当月亮也来赴会
 
-###### 黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙
+###### 庆祝中秋节的中国灯笼
 
-![](https://www.bing.com/th?id=OHR.ElGolfo_ZH-CN8329995759_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_UHD.jpg)
 
 ## 归档
 
