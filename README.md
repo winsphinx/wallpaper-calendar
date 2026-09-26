@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260925 - 当月亮也来赴会
+## 20260926 - 写在大地上的故事
 
-###### 庆祝中秋节的中国灯笼
+###### 熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国
 
-![](https://www.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_UHD.jpg)
 
 ## 归档
 
