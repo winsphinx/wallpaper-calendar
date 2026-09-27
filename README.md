@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260926 - 写在大地上的故事
+## 20260927 - 深海夜花园
 
-###### 熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国
+###### 海笔上的装饰蟹，科莫多国家公园，印度尼西亚
 
-![](https://www.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DecoCrab_ZH-CN0973306994_UHD.jpg)
 
 ## 归档
 
