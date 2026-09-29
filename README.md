@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260928 - 可览美景的历史胜地
+## 20260929 - 冰川孕育之河
 
-###### 斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度
+###### 卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国
 
-![](https://www.bing.com/th?id=OHR.AmberHall_ZH-CN1223127100_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_UHD.jpg)
 
 ## 归档
 
