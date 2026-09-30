@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20260929 - 冰川孕育之河
+## 20260930 - 一张令人过目难忘的脸
 
-###### 卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国
+###### 雄性文须雀，诺福克郡，英格兰
 
-![](https://www.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_UHD.jpg)
 
 ## 归档
 
