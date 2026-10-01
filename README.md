@@ -1,13 +1,14 @@
 # 每日壁纸
 
-## 20260930 - 一张令人过目难忘的脸
+## 20261001 - 在花岗岩中读懂时间
 
-###### 雄性文须雀，诺福克郡，英格兰
+###### 奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_UHD.jpg)
 
 ## 归档
 
+| [202610](/202610/README.md)
 | [202609](/202609/README.md)
 | [202608](/202608/README.md)
 | [202607](/202607/README.md)
