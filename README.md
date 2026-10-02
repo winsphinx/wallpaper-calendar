@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261001 - 在花岗岩中读懂时间
+## 20261002 - 一条值得保护的河流
 
-###### 奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国
+###### 查图加河，阿巴拉契亚山脉，北卡罗来纳州，美国
 
-![](https://www.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_UHD.jpg)
 
 ## 归档
 
