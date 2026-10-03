@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261002 - 一条值得保护的河流
+## 20261003 - 捕捉、进食、重复
 
-###### 查图加河，阿巴拉契亚山脉，北卡罗来纳州，美国
+###### 美国阿拉斯加州克拉克湖国家公园和自然保护区银鲑溪中的棕熊
 
-![](https://www.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.GrizzlySwim_ZH-CN1005455737_UHD.jpg)
 
 ## 归档
 
