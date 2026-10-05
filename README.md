@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261004 - 宇宙在召唤
+## 20261005 - 纵身一跃，一次一课
 
-###### 阿尔忒弥斯1号月球火箭，39B发射台，肯尼迪航天中心，佛罗里达州，2022年6月15日
+###### 南极洲的阿德利企鹅
 
-![](https://www.bing.com/th?id=OHR.ArtemisRocket_ZH-CN1768541365_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_UHD.jpg)
 
 ## 归档
 
