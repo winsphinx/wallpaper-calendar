@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261005 - 纵身一跃，一次一课
+## 20261006 - 条纹中的地球故事
 
-###### 南极洲的阿德利企鹅
+###### 丹霞地貌，张掖国家地质公园，甘肃省，中国
 
-![](https://www.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_UHD.jpg)
 
 ## 归档
 
