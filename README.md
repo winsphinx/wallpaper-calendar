@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261006 - 条纹中的地球故事
+## 20261007 - 迷惑不解？沿着小径走
 
-###### 丹霞地貌，张掖国家地质公园，甘肃省，中国
+###### 覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰
 
-![](https://www.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_UHD.jpg)
 
 ## 归档
 
