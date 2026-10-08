@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261007 - 迷惑不解？沿着小径走
+## 20261008 - 现在你“海”能看见我……
 
-###### 覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰
+###### 印度洋马约特岛，一只呈防御姿态的章鱼
 
-![](https://www.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_UHD.jpg)
 
 ## 归档
 
