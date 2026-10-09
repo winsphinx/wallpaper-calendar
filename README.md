@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261008 - 现在你“海”能看见我……
+## 20261009 - 科西嘉岛的岩石前哨
 
-###### 印度洋马约特岛，一只呈防御姿态的章鱼
+###### 桑吉奈尔群岛景观，摄自科西嘉岛，法国
 
-![](https://www.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_UHD.jpg)
 
 ## 归档
 
