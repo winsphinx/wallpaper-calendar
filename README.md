@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261009 - 科西嘉岛的岩石前哨
+## 20261010 - 迁飞路线上的生命
 
-###### 桑吉奈尔群岛景观，摄自科西嘉岛，法国
+###### 蒙特雷湾上空的双冠鸬鹚，加利福尼亚州，美国
 
-![](https://www.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CormorantsFlight_ZH-CN0770863330_UHD.jpg)
 
 ## 归档
 
