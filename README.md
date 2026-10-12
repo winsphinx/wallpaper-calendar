@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261011 - 秋色中转动的水轮
+## 20261012 - 从铁轨到潮汐
 
-###### 格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国
+###### 曼布尔斯码头，斯旺西，威尔士
 
-![](https://www.bing.com/th?id=OHR.BabcockSP_ZH-CN5266848536_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.MumblesSwansea2026_ZH-CN5419531039_UHD.jpg)
 
 ## 归档
 
