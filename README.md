@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261012 - 从铁轨到潮汐
+## 20261013 - 蓝与绿的交响曲
 
-###### 曼布尔斯码头，斯旺西，威尔士
+###### 普利特维采湖群国家公园，克罗地亚
 
-![](https://www.bing.com/th?id=OHR.MumblesSwansea2026_ZH-CN5419531039_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_UHD.jpg)
 
 ## 归档
 
