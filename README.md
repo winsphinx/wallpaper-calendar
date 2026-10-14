@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261013 - 蓝与绿的交响曲
+## 20261014 - 穿越时间的螺旋
 
-###### 普利特维采湖群国家公园，克罗地亚
+###### 侏罗纪时期的菊石化石
 
-![](https://www.bing.com/th?id=OHR.PlitviceAutumn_ZH-CN5646237897_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_UHD.jpg)
 
 ## 归档
 
