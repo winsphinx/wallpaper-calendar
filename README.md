@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261014 - 穿越时间的螺旋
+## 20261015 - 桥梁、屋顶与暮色
 
-###### 侏罗纪时期的菊石化石
+###### 弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰
 
-![](https://www.bing.com/th?id=OHR.AmmoniteFossils_ZH-CN5825251327_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_UHD.jpg)
 
 ## 归档
 
