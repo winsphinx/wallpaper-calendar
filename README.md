@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261015 - 桥梁、屋顶与暮色
+## 20261016 - 一窥科罗拉多群峰
 
-###### 弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰
+###### 斯奈费尔斯山，里奇韦附近的圣胡安山脉，科罗拉多州，美国
 
-![](https://www.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SneffelsAutumn_ZH-CN3002661429_UHD.jpg)
 
 ## 归档
 
