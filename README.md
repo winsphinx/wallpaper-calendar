@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261018 - 75载，风华正茂
+## 20261019 - 水上通衢
 
-###### 多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士
+###### 大运河，威尼斯，意大利
 
-![](https://www.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_UHD.jpg)
 
 ## 归档
 
