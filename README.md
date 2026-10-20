@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261019 - 水上通衢
+## 20261020 - 慢节奏生活
 
-###### 大运河，威尼斯，意大利
+###### 褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加
 
-![](https://www.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_UHD.jpg)
 
 ## 归档
 
