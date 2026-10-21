@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261020 - 慢节奏生活
+## 20261021 - 飞掠河面
 
-###### 褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加
+###### 香江上的阮潢桥，顺化，越南
 
-![](https://www.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_UHD.jpg)
 
 ## 归档
 
