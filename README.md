@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261022 - 静水映斑斓
+## 20261023 - 荒野伙伴
 
-###### 内藏山国立公园的秋景，韩国
+###### 两只灰狼，黄石国家公园，怀俄明州，美国
 
-![](https://www.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_UHD.jpg)
 
 ## 归档
 
