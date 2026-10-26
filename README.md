@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261025 - 群峰与宁静相遇之地
+## 20261026 - 大自然的秋日乐章
 
-###### 玛琳湖，贾斯珀国家公园，艾伯塔省，加拿大
+###### 秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚
 
-![](https://www.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_UHD.jpg)
 
 ## 归档
 
