@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261027 - 大自然的金色明镜
+## 20261028 - 历史守望之地
 
-###### 秋叶缤纷的池杉林，乔治亚州，美国
+###### 库涅季采山城堡，波希米亚，捷克
 
-![](https://www.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_UHD.jpg)
 
 ## 归档
 
