@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261028 - 历史守望之地
+## 20261029 - 薄雾邂逅千年时光
 
-###### 库涅季采山城堡，波希米亚，捷克
+###### 立石，埃夫伯里，威尔特郡，英格兰
 
-![](https://www.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_UHD.jpg)
 
 ## 归档
 
