@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261029 - 薄雾邂逅千年时光
+## 20261030 - 展翅高飞的时节
 
-###### 立石，埃夫伯里，威尔特郡，英格兰
+###### 沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国
 
-![](https://www.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_UHD.jpg)
 
 ## 归档
 
