@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261030 - 展翅高飞的时节
+## 20261031 - 往昔帝国的幽影
 
-###### 沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国
+###### 圣巴尔多禄茂教堂，法兰克福，德国
 
-![](https://www.bing.com/th?id=OHR.AutumnCranes_ZH-CN5772055404_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_UHD.jpg)
 
 ## 归档
 
