@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261102 - 写在冰上的未来
+## 20261103 - 群峰间的宁静
 
-###### 北极熊和幼崽，哈得孙湾畔，马尼托巴省，加拿大
+###### 布莱埃斯湖，法内斯-塞内斯-布莱埃斯湖自然公园，多洛米蒂山脉，意大利
 
-![](https://www.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_UHD.jpg)
 
 ## 归档
 
