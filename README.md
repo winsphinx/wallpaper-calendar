@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261103 - 群峰间的宁静
+## 20261104 - 泛舟如画秋林
 
-###### 布莱埃斯湖，法内斯-塞内斯-布莱埃斯湖自然公园，多洛米蒂山脉，意大利
+###### 五彩落羽杉间划船的人们，宣城，安徽省，中国
 
-![](https://www.bing.com/th?id=OHR.AlpineBraies_ZH-CN7307997866_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_UHD.jpg)
 
 ## 归档
 
