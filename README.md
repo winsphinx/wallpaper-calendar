@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261105 - 向山巅再迈一步
+## 20261106 - 穿越毛伊岛的绿色隧道
 
-###### 石墙边的木制翻越梯，黑岩，湖区，英格兰
+###### 竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国
 
-![](https://www.bing.com/th?id=OHR.StileCrossing_ZH-CN9811465935_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.PipiwaiTrail_ZH-CN1811194311_UHD.jpg)
 
 ## 归档
 
