@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261107 - 归来的草原巨兽
+## 20261108 - 光芒四射的节日
 
-###### 草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国
+###### 排灯节灯笼，孟买，马哈拉施特拉邦，印度
 
-![](https://www.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_UHD.jpg)
 
 ## 归档
 
