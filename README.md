@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261108 - 光芒四射的节日
+## 20261109 - 艺术与韵律交汇之地
 
-###### 排灯节灯笼，孟买，马哈拉施特拉邦，印度
+###### 特里亚纳历史街区，塞维利亚，西班牙
 
-![](https://www.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TrianaSpain_ZH-CN6329291776_UHD.jpg)
 
 ## 归档
 
