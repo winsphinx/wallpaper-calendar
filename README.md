@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261109 - 艺术与韵律交汇之地
+## 20261110 - 惬意放松，尽享海岛时光
 
-###### 特里亚纳历史街区，塞维利亚，西班牙
+###### 玫瑰岛航拍图，巴哈马
 
-![](https://www.bing.com/th?id=OHR.TrianaSpain_ZH-CN6329291776_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RoseIsland_ZH-CN6477140814_UHD.jpg)
 
 ## 归档
 
