@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261110 - 惬意放松，尽享海岛时光
+## 20261111 - 奇妙纷呈的森林
 
-###### 玫瑰岛航拍图，巴哈马
+###### 大西洋森林，巴西
 
-![](https://www.bing.com/th?id=OHR.RoseIsland_ZH-CN6477140814_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_UHD.jpg)
 
 ## 归档
 
