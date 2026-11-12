@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261111 - 奇妙纷呈的森林
+## 20261112 - 没有建筑师的建筑杰作
 
-###### 大西洋森林，巴西
+###### 北窗，拱门国家公园，莫阿布，犹他州，美国
 
-![](https://www.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.NorthWindow_ZH-CN6734579353_UHD.jpg)
 
 ## 归档
 
