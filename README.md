@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261112 - 没有建筑师的建筑杰作
+## 20261113 - 冰下秘境
 
-###### 北窗，拱门国家公园，莫阿布，犹他州，美国
+###### 亚伯拉罕湖，艾伯塔省，加拿大
 
-![](https://www.bing.com/th?id=OHR.NorthWindow_ZH-CN6734579353_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.AbrahamCanada_ZH-CN0344365912_UHD.jpg)
 
 ## 归档
 
