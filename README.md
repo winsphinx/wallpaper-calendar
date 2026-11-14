@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261113 - 冰下秘境
+## 20261114 - 唯有向上发展
 
-###### 亚伯拉罕湖，艾伯塔省，加拿大
+###### 中国香港维多利亚港
 
-![](https://www.bing.com/th?id=OHR.AbrahamCanada_ZH-CN0344365912_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BlueHK_ZH-CN1382345392_UHD.jpg)
 
 ## 归档
 
