@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261114 - 唯有向上发展
+## 20261115 - 霜染枝叶
 
-###### 中国香港维多利亚港
+###### 覆霜的红叶杜鹃
 
-![](https://www.bing.com/th?id=OHR.BlueHK_ZH-CN1382345392_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FirstFrost_ZH-CN2219029557_UHD.jpg)
 
 ## 归档
 
