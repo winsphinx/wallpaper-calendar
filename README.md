@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261116 - 历经岁月，屹立不倒
+## 20261117 - 走进广阔的大自然
 
-###### 美国新墨西哥州吉拉悬崖民居国家纪念地
+###### 雪松林步道，冰川国家公园，蒙大拿州，美国
 
-![](https://www.bing.com/th?id=OHR.GilaCliff_ZH-CN2393001519_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.TrailCedars_ZH-CN2670680285_UHD.jpg)
 
 ## 归档
 
