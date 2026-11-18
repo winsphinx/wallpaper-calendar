@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261117 - 走进广阔的大自然
+## 20261118 - 从黄昏狩猎到黎明
 
-###### 雪松林步道，冰川国家公园，蒙大拿州，美国
+###### 一对仓鸮
 
-![](https://www.bing.com/th?id=OHR.TrailCedars_ZH-CN2670680285_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.BarnOwlsUnite_ZH-CN2930153291_UHD.jpg)
 
 ## 归档
 
