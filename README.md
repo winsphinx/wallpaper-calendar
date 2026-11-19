@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261118 - 从黄昏狩猎到黎明
+## 20261119 - 思想在此成形
 
-###### 一对仓鸮
+###### 雕塑《知识之躯》，由豪梅·普兰萨创作，位于德国法兰克福的法兰克福歌德大学
 
-![](https://www.bing.com/th?id=OHR.BarnOwlsUnite_ZH-CN2930153291_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.KnowledgeSculpture_ZH-CN3168800853_UHD.jpg)
 
 ## 归档
 
