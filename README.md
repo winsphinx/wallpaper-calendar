@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261120 - 在峡湾中大快朵颐
+## 20261121 - 陶瓦屋顶下的梦
 
-###### 正在潜水的座头鲸，挪威北部特罗姆斯的克瓦尔岛
+###### 法国普罗旺斯-阿尔卑斯-蔚蓝海岸大区尼斯
 
-![](https://www.bing.com/th?id=OHR.Megaptera_ZH-CN3361807823_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RedNice_ZH-CN3518429866_UHD.jpg)
 
 ## 归档
 
