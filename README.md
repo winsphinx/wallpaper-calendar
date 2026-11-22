@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261121 - 陶瓦屋顶下的梦
+## 20261122 - 海浪间的庇护所
 
-###### 法国普罗旺斯-阿尔卑斯-蔚蓝海岸大区尼斯
+###### 西班牙坎塔布里亚自治区的圣胡斯塔隐修院与小教堂
 
-![](https://www.bing.com/th?id=OHR.RedNice_ZH-CN3518429866_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.JustaHermitage_ZH-CN3751022621_UHD.jpg)
 
 ## 归档
 
