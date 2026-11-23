@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261122 - 海浪间的庇护所
+## 20261123 - 自然中的几何之美
 
-###### 西班牙坎塔布里亚自治区的圣胡斯塔隐修院与小教堂
+###### 蕨类植物的卷曲嫩叶
 
-![](https://www.bing.com/th?id=OHR.JustaHermitage_ZH-CN3751022621_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FibonacciFern_ZH-CN3882237848_UHD.jpg)
 
 ## 归档
 
