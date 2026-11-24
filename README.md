@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261123 - 自然中的几何之美
+## 20261124 - 秋日的保护色
 
-###### 蕨类植物的卷曲嫩叶
+###### 红松鼠，凯恩戈姆斯国家公园，苏格兰高地
 
-![](https://www.bing.com/th?id=OHR.FibonacciFern_ZH-CN3882237848_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_UHD.jpg)
 
 ## 归档
 
