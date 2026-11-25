@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261124 - 秋日的保护色
+## 20261125 - 美国西南部的一场雪
 
-###### 红松鼠，凯恩戈姆斯国家公园，苏格兰高地
+###### 日落观景点，布莱斯峡谷国家公园，犹他州
 
-![](https://www.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.SunsetPoint_ZH-CN5737034685_UHD.jpg)
 
 ## 归档
 
