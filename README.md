@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261125 - 美国西南部的一场雪
+## 20261126 - 彩虹落下的地方
 
-###### 日落观景点，布莱斯峡谷国家公园，犹他州
+###### 怀卢库河上的彩虹瀑布，希洛市，夏威夷州，美国
 
-![](https://www.bing.com/th?id=OHR.SunsetPoint_ZH-CN5737034685_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.RFHilo_ZH-CN5962114314_UHD.jpg)
 
 ## 归档
 
