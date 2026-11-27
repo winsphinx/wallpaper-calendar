@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261126 - 彩虹落下的地方
+## 20261127 - 灰金交织的峡谷
 
-###### 怀卢库河上的彩虹瀑布，希洛市，夏威夷州，美国
+###### 夕阳下的孤峰，鲍威尔湖脸峡谷，犹他州，美国
 
-![](https://www.bing.com/th?id=OHR.RFHilo_ZH-CN5962114314_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.FaceCanyon_ZH-CN9505064248_UHD.jpg)
 
 ## 归档
 
