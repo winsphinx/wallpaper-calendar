@@ -1,10 +1,10 @@
 # 每日壁纸
 
-## 20261127 - 灰金交织的峡谷
+## 20261128 - 跨越时光的桥梁
 
-###### 夕阳下的孤峰，鲍威尔湖脸峡谷，犹他州，美国
+###### 捷克布拉格老城区与伏尔塔瓦河
 
-![](https://www.bing.com/th?id=OHR.FaceCanyon_ZH-CN9505064248_UHD.jpg)
+![](https://www.bing.com/th?id=OHR.VltavaPrague_ZH-CN9898139716_UHD.jpg)
 
 ## 归档
 
